@@ -41,15 +41,29 @@ Swami P is very cute - he says how long are you going to keep saying Brahma Sath
 May the divine mother bless all of you and your families on this auspicious Panguni Uthiram day .
 
 
-1. [श्रीमाता- śrīmātā](0001.md)
+1. [Verse 1](verse_001.md)
 
-2. [श्रीमहाराज्ञी - śrīmahārājñī](0002.md)
+2. [Verse 2](verse_002.md)
 
-3. [श्रीमत्-सिंहासनेश्वरी - śrīmat-siṃhāsaneśvari](0003.md)
+3. [Verse 3](verse_003.md)
 
-4. [चिदग्नि-कुण्ड-सम्भूता - cidagni-kuṇḍa-sambhūtā](0004.md)
+4. [Verse 4](verse_004.md)
 
-5. [देवकार्य-समुद्यता - devakārya-samudyatā](0005.md)
+5. [Verse 5](verse_005.md)
+
+1. [Verse 6](verse_006.md)
+
+1. [Verse 7](verse_007.md)
+
+1. [Verse 8](verse_008.md)
+
+1. [Verse 9](verse_009.md)
+
+1. [Verse 10](verse_010.md)
+
+1. [Verse 11](verse_011.md)
+
+1. [Verse 12](verse_012.md)
 
 
 
