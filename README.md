@@ -46,6 +46,8 @@ May the divine mother bless all of you and your families on this auspicious Pang
 
 ------------------------------------
 
+# Lalitha Sahasranamam - verse wise meanings and explanations
+
 
 1. [Verse 1](verse_001.md)
 
