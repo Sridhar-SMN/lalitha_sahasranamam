@@ -15,11 +15,9 @@ cidagni-kuṇḍa-sambhūtā devakārya-samudyatā
 5/1000 namas of Lalithambike are covered in this verse
 
 
-# Nama 1
+# nama 1/1000 - Apr 5 
 
-nama 1/1000 - Apr 5 
-
-श्रीमाता- śrīmātā
+## श्रीमाता- śrīmātā
 
 The Supreme mother as the substratum and creator/sustainer/dissolver of the universe is how LS begins. When Sri is added as a prefix to any word, it shows the greatness (every rule has an exception and i stand as the shining example of that exception to this rule 🙂) . The human mother goes great lengths including sacrificing everything at her disposal for the sake of her child but does not have the special power to alleviate the child's sufferings and miseries (scriptures call it Tapatrayam - 3 fires) . Worshiping the Goddess as divine mother is acknowledging that with  Her grace we will be able to overcome this samsara with ease and gain the necessary courage to swim through effortlessly.  As Spji says in one of his speeches - God does not have any grandchildren and hence she is Srimata to all. 
 
@@ -32,7 +30,7 @@ It is very pertinent to note that LS begins by addressing Lalithambike as the mo
 
 # Nama 2/1000 - Apr 6
 
-श्रीमहाराज्ञी - śrīmahārājñī
+## श्रीमहाराज्ञी - śrīmahārājñī
 
 While the first nama referred to the divine mother as the creator, this nama brings out the Goddess as the sustainer.  You will note the "Sri" prefix continues here too.  The concept mentioned here is very similar to the concept of creator, sustainer in Gita slokas 9.04 to 9.08.  We will use those principles for a later nama. 
 
@@ -61,7 +59,7 @@ Jnyaana-Vairaagya-SiddhyArtham Bhikssaam Dehi Ca Paarvati
 
 # nama 3/1000 - Apr 7
 
-श्रीमत्-सिंहासनेश्वरी - śrīmat-siṃhāsaneśvari
+## श्रीमत्-सिंहासनेश्वरी - śrīmat-siṃhāsaneśvari
 
 Simhasaneshvari = Simha + Asanam + Isvari.  Lalithambike, the Empress, is sitting on a Lion. This nama, again starting with Sri,  talks of Her role as the supreme dissolver (the first 2 we saw as being the creator & sustainer) .  It is believed that word Simha is flipped version of Himsa which means pain/suffering (like it is said 'Siva' is the flipped version of  'Vas' where Vas = Desire).  Asana has a meaning in Sanskrit equating to expelling and Isvari = powerful ruler.  So the nama stands for ‘Pain/suffering expelling powerful ruler’ in Her role as uplifting of her devotees and also  destroyer of the Universe at Pralayam and Mahapralayam (we will see what these words mean in a later nama - mahapralayasakshini).  
 
@@ -69,7 +67,7 @@ The Devi, in her girlhood, seated on a lion, slew Mahisa, an Asura who represent
 
 # nama 4/1000 - Apr 10 
 
-चिदग्नि-कुण्ड-सम्भूता - cidagni-kuṇḍa-sambhūtā
+## चिदग्नि-कुण्ड-सम्भूता - cidagni-kuṇḍa-sambhūtā
 
 Cit+Agnikunda+Sambuta : Cit= Consciousness (Nirguna Brahman - Original Consciousness - OC), Agni Kunda = Fire altar & Sambuta = Born. This nama has some parallels to Gita sloka 4.37 where Lord Krishna talks about how knowledge of our real nature burns to ashes our ignorance, karma & kartritva (doership). 
 
@@ -82,7 +80,7 @@ The Brahmanda Purana (the Purana in which Lalitha Sahasranamam appears as the co
 
 # nama 5/1000 - Apr 11 
 
-देवकार्य-समुद्यता - devakārya-samudyatā
+## देवकार्य-समुद्यता - devakārya-samudyatā
 
 This nama has a very close resemblance to Gita sloka 4.08 (परित्राणाय साधूनां विनाशाय च दुष्कृताम् : paritrāṇāya sādhūnāṁ vināśhāya cha duṣhkṛitām = To protect the righteous & to annihilate the wicked).  This nama of LS translates to "manifested herself for fulfilling the objectives of the devas" .
 
