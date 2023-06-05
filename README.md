@@ -4,7 +4,9 @@ We will start on the auspicious Panguni Uthiram Day - Apr 5
 
 Posts will be on weekdays only and for now have kept it as admin only to ensure it is limited traffic and light touch for all.
 
-As the divine mother represents Siva Sakthi Aikya svaroopam we pray to her on this day to guide us and fill our minds with true knowledge as we embark on the LS learning journey 🙏🙇‍♂️
+### As the divine mother represents Siva Sakthi Aikya svaroopam we pray to her on this day to guide us and fill our minds with true knowledge as we embark on the LS learning journey 🙏🙇‍♂️
+
+#### offering all this at the lotus feet of my Guru Swami Paramarthanandaji, I seek the blessings of the Divine mother and venture into this project. 
 
 Namaskarams Dear All, 
 
