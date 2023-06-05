@@ -33,14 +33,12 @@ Praying to the divine mother to be with us in this journey and guide us towards 
 
 one of the invocation slokas chanted before LS is quoted below.
 
-अरुणां करुणातरङ्गिताक्षीं
-धृतपाशाङ्कुशपुष्पबाणचापाम् ।
-अणिमादिभिरावृतां मयुखैः
-#### अहमित्येव विभावये भवानीम्॥
+अरुणां करुणातरङ्गिताक्षीं धृतपाशाङ्कुशपुष्पबाणचापाम् ।
+अणिमादिभिरावृतां मयुखैः अहमित्येव विभावये भवानीम्॥
 
 I meditate on the great Empress. She is red in color, and her eyes are full of compassion, and holds the noose, the goad, the bow and the flowery arrow in Her hands. She is surrounded on all sides by powers such as aNimA for rays and She is the Self within me 
 
-Normally the sentence in bold is translated as what i have quoted above in bold. But then we are disciples of Swami P and he always adds that extra gear.  He says this line has to be interpreted not just as "She is the Self within me" but also as "I am none other than Bhavani" - here Bhavani is in reference to Para Prakriti / Brahman and not just the form of the Goddess. Invoking Atma Svarupam is a "must do" from Swami P's perspective to ensure the mind and intellect are perfectly aligned to the real goal like what Lord Krishna says in Gita 3.30 - do Karma and Bakthi but always don’t forget who You really are. 
+Normally the 4th part of the slokas is translated as what i have quoted above in bold. But then we are disciples of Swami P and he always adds that extra gear.  He says this line has to be interpreted not just as "She is the Self within me" but also as "I am none other than Bhavani" - here Bhavani is in reference to Para Prakriti / Brahman and not just the form of the Goddess. Invoking Atma Svarupam is a "must do" from Swami P's perspective to ensure the mind and intellect are perfectly aligned to the real goal like what Lord Krishna says in Gita 3.30 - do Karma and Bakthi but always don’t forget who You really are knowing that You are never the doer. 
 
 Swami P is very cute - he says how long are you going to keep saying Brahma Sathyam, Jagath Mithya & Jivo Brahmaiva na param ? When are going to collapse these 3 parts into 2 parts and say Aham Sathyam, Jagath Mithya  ?
 
