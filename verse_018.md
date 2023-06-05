@@ -10,15 +10,15 @@ gūḍhagulphā kūrmapṛṣṭha-jayiṣṇu-prapadānvitā
 42. गूढगुल्फा  - gūḍhagulphā 
 43. कूर्मपृष्ठ-जयिष्णु-प्रपदान्विता - kūrmapṛṣṭha-jayiṣṇu-prapadānvitā
 
-इन्द्रगोप-परिक्षिप्त-स्मरतूणाभ-जङ्घिका  -  indragopa-parikṣipta-smaratūṇābha-jaṅghikā
+## इन्द्रगोप-परिक्षिप्त-स्मरतूणाभ-जङ्घिका  -  indragopa-parikṣipta-smaratūṇābha-jaṅghikā
 
 Her calf muscles look like the quiver of Manmatha, the god of love. Saundarya Laharī (verse 83) says “In order to win the heart of your Lord Śiva, the five arrowed cupid God of love has made your legs into an arrow case with ten arrows (toe nails).”
 
-गूढगुल्फा  - gūḍhagulphā
+## गूढगुल्फा  - gūḍhagulphā
 
 She has round and well shaped ankles that are hidden.
 
-कूर्मपृष्ठ-जयिष्णु-प्रपदान्विता - kūrmapṛṣṭha-jayiṣṇu-prapadānvitā
+## कूर्मपृष्ठ-जयिष्णु-प्रपदान्विता - kūrmapṛṣṭha-jayiṣṇu-prapadānvitā
 
 The arch of her feet is more beautiful and curvier than tortoise’s shell. But Adi Shankaracharya in Soundarya Lahiri expresses his anger for comparing Her feet to that of tortoise shell, which is hard. He says in SL,  “The toes of your feet is the one that sustains this universe (he is not even comparing the entire feet, he says only about the toes). Lord Śiva knows the softness of your feet that is why He held your feet with great care during your marriage ceremony. How dare they (possibly Vāc Devis) compare such soft feet to that of tortoise shell?” 
 
