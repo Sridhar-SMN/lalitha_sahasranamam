@@ -1,4 +1,4 @@
-# Verse 4 - nama 13 & 14 - Apr 21 
+# Verse 4 - nama 13 & 14/1000 - Apr 21 
 
 चम्पकाशोक-पुन्नाग-सौगन्धिक-लसत्कचा ।
 कुरुविन्दमणि-श्रेणी-कनत्कोटीर-मण्डिता ॥
@@ -9,7 +9,7 @@ kuruvindamaṇi-śreṇī-kanatkoṭīra-maṇḍitā
 13.चम्पकाशोक-पुन्नाग-सौगन्धिक-लसत्कचा  : campakāśoka-punnāga-saugandhika-lasatkacā
 14. कुरुविन्दमणि-श्रेणी-कनत्कोटीर-मण्डिता :  kuruvindamaṇi-śreṇī-kanatkoṭīra-maṇḍitā
 
-## Nama 13 & 14/1000
+
 
 ## चम्पकाशोक-पुन्नाग-सौगन्धिक-लसत्कचा  : Campakāśoka-punnāga-saugandhika-lasat-kacā
 
