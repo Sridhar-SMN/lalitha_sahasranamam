@@ -1,4 +1,4 @@
-## Verse 25 - nama 66 & 67 
+# Verse 25 - nama 66 & 67/1000 
 
 सम्पत्करी-समारूढ-सिन्धुर-व्रज-सेविता ।
 अश्वारूढाधिष्ठिताश्व-कोटि-कोटिभिरावृता ॥
@@ -11,9 +11,9 @@ aśvārūḍhādhiṣṭhitāśva-koṭi-koṭibhirāvṛtā
 67. अश्वारूढाधिष्ठिताश्व-कोटि-कोटिभिरावृता  -aśvārūḍhādhiṣṭhitāśva-koṭi-koṭibhirāvṛtā
 
 
-## nama 66 - June 1 
+# nama 66 - June 1 
 
-## सम्पत्करी-समारूढ-सिन्धुर-व्रज-सेविता - sampatkarī-samārūḍha-sindhura-vraja-sevitā 
+## 66. सम्पत्करी-समारूढ-सिन्धुर-व्रज-सेविता - sampatkarī-samārūḍha-sindhura-vraja-sevitā 
 
 She is worshipped by herds of elephants headed by Sampatkarī.  You would remember that in nama 9 - Apr 17th where we discussed the elephant hook (that is used to subdue our anger/hatred) and during that nama we saw that the hand holding the elephant hook is represented by Sampatkari Devi.  Of course this nama is much more involved as we will see below. For the Vedantins in the group this nama will surely be down your alley. 
 
@@ -49,9 +49,9 @@ Footnote
 
 If you see something as separate from you then it is the wrong cognition or wrong perception. He says if everything that you see or you know directly to be your own Self and is not separate from you in the sense that there is no “I” inside you perceiving something out there, he says then that is the correct understanding the correct experience of the world. He is not saying that it is not there but what he is saying is you have got a superimposition of a wrong idea. What you are seeing is an external thing which you take to be real but it essentially is the Self/Reality in which appears you and the world and so long as you imagine you are in that body looking at the world, you are going to suffer.  But he says once you get rid of the person inside who is looking outside at something then you find your own natural state (Sampatkari of LS)
 
-## nama 67 - June 2 
+# nama 67 - June 2 
 
-## अश्वारूढाधिष्ठिताश्व-कोटि-कोटिभिरावृता  -aśvārūḍhādhiṣṭhitāśva-koṭi-koṭibhirāvṛtā
+## 67. अश्वारूढाधिष्ठिताश्व-कोटि-कोटिभिरावृता  -aśvārūḍhādhiṣṭhitāśva-koṭi-koṭibhirāvṛtā
 
 The nama simply means - Lalithambike is surrounded my many horses headed by Aśvārūḍhā Devi, about whom we have discussed in nāma 8 (Apr 14).   The use of horses to denote our 5 senses is one of the often used prop of our scriptures.  It first appears in Katho Upanishad and Lord Krishna borrows it heavily in the Gita. 
 
