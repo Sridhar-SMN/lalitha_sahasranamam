@@ -9,7 +9,9 @@ kuruvindamaṇi-śreṇī-kanatkoṭīra-maṇḍitā
 13.चम्पकाशोक-पुन्नाग-सौगन्धिक-लसत्कचा  : campakāśoka-punnāga-saugandhika-lasatkacā
 14. कुरुविन्दमणि-श्रेणी-कनत्कोटीर-मण्डिता :  kuruvindamaṇi-śreṇī-kanatkoṭīra-maṇḍitā
 
-## चम्पकाशोक-पुन्नाग-सौगन्धिक-लसत्कचा  : Campakāśoka-punnāga-saugandhika-lasat-kacā : (13)
+## Nama 13 & 14/1000
+
+## चम्पकाशोक-पुन्नाग-सौगन्धिक-लसत्कचा  : Campakāśoka-punnāga-saugandhika-lasat-kacā
 
 Campaka, aśoka, punnāga, saugandhika are the four types of fragrant flowers that adorn Her hair. But Her hair does not get fragrance because of these flowers, whereas these flowers get their fragrance from Her hair. Her hair is always sweet smelling.  Wetness indicates Her compassion and softness indicates Her motherhood.
 
