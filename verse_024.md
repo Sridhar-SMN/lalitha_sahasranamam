@@ -1,4 +1,4 @@
-## Verse 24 - nama 64 & 65 
+# Verse 24 - nama 64 & 65/1000 
 
 देवर्षि-गण-संघात-स्तूयमानात्म-वैभवा ।
 भण्डासुर-वधोद्युक्त-शक्तिसेना-समन्विता ॥
@@ -9,9 +9,9 @@ bhaṇḍāsura-vadhodyukta-śaktisenā-samanvitā
 64. देवर्षि-गण-संघात-स्तूयमानात्म-वैभवा - devarṣi-gaṇa-saṃghāta-stūyamānātma-vaibhavā
 65. भण्डासुर-वधोद्युक्त-शक्तिसेना-समन्विता - bhaṇḍāsura-vadhodyukta-śaktisenā-samanvitā
 
-## nama 64 - May 30
+# nama 64 - May 30
 
-## देवर्षि-गण-संघात-स्तूयमानात्म-वैभवा - devarṣi-gaṇa-saṃghāta-stūyamānātma-vaibhavā
+## 64. देवर्षि-गण-संघात-स्तूयमानात्म-वैभवा - devarṣi-gaṇa-saṃghāta-stūyamānātma-vaibhavā
 
 In case you have not yet read the Devi Mahatmiyam post sent on May 26th - kindly urge you to read it thoroughly. Starting from this nama is the slaying of the demon Bhadasura - Bhandasura is a puranic character used to represent the demons inside of us and not some wicked fellow who was tormenting the good guys.
 
@@ -19,9 +19,9 @@ Deva + rṣi + gaṇa. Deva means gods and goddesses, rṣi means sage and gaṇ
 
 It is also said that sage Nārada approached Lalithanmibke to help slay demon Bhaṇḍāsura who was causing immense trouble to Devas and rṣis. The deeper meaning of this nāma is - demons here mean the ahamkara arising out of ignorance as highlighted in the May 26th Devi Mahatmiyam post. it is so strange that ahamakara which is the first product of ignorance (avidya) so loyally follows every dictate of Avidya. This has to be the most loyal boss-employee relationship (borrowed from Alpana’s notes on Vichara Sagara) . Divine mother is approached by them to absolve them of their Ahamkara as She alone is capable of absolving them. Karmas/Punyam/Papam cycle are committed because of Ahamkara {I am careful not to call Ahamkara as Ego given it sends out the wrong message. Ahamkara simply means falsely identifying with this body/mind - Gita 3.27}
 
-## nama 65 - May 31 
+# nama 65 - May 31 
 
-## भण्डासुर-वधोद्युक्त-शक्तिसेना-समन्विता - bhaṇḍāsura-vadhodyukta-śaktisenā-samanvitā
+## 65. भण्डासुर-वधोद्युक्त-शक्तिसेना-समन्विता - bhaṇḍāsura-vadhodyukta-śaktisenā-samanvitā
 
 Now let us learn how this fellow Bhandasura got his name 
 
