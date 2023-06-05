@@ -9,11 +9,11 @@ ratnagraiveya-cintāka-lola-muktā-phalānvitā
 31 . कनकाङ्गद-केयूर-कमनीय-भुजान्विता - kanakāṅgada-keyūra-kamanīya-bhujānvitā 
 32. रत्नग्रैवेय-चिन्ताक-लोल-मुक्ता-फलान्विता - ratnagraiveya-cintāka-lola-muktā-phalānvitā
 
-कनकाङ्गद-केयूर-कमनीय-भुजान्विता - kanakāṅgada-keyūra-kamanīya-bhujānvitā
+## कनकाङ्गद-केयूर-कमनीय-भुजान्विता - kanakāṅgada-keyūra-kamanīya-bhujānvitā
 
 kanaka – golden; aṅgada – bangles or bracelets; keyūra is a type of ornament worn in the upper arms. She is wearing these ornaments. Possibly, this could mean the following -  Both these ornaments are made out of gold and worn in the arms. Though they differ in form, the ingredient reality gold is the same in both and these are merely name and form of Gold. Though the forms of living beings are different, the innermost reality - Brahman remains the same. Gita 4.24 matches nicely to this nama. 
 
-रत्नग्रैवेय-चिन्ताक-लोल-मुक्ता-फलान्विता - ratnagraiveya-cintāka-lola-muktā-phalānvitā
+## रत्नग्रैवेय-चिन्ताक-लोल-मुक्ता-फलान्विता - ratnagraiveya-cintāka-lola-muktā-phalānvitā
 
 She is wearing a gems embedded golden pendent and a pearl necklace. These ornaments are dangling in Her neck. 
 
