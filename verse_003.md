@@ -13,7 +13,7 @@ nijāruṇa-prabhāpūra-majjadbrahmāṇḍa-maṇḍalā
 
 # Nama 10/1000- Apr 18
 
-मनोरूपेक्षु-कोदण्डा - manorūpekṣu-kodaṇḍā 
+## मनोरूपेक्षु-कोदण्डा - manorūpekṣu-kodaṇḍā 
 
 From Nama 8 and 9 it is clear the Divine mother takes care of the 2 main “enemies” and as such now the mind is purer and less messed up. The traditional function of the mind - Sankalpa (how one thinks) and Vikalpa (doubting/debating) - are now nicely streamlined thanks to blessing of the previous 2 namas and when such a mind is squeezed what is left is the sweet juice of sugarcane depicted by the Bow in the hand of the Divine mother.  From sugarcane the sweetest juice can be enjoyed. The same way when Lalithambike has her reign on our minds we do understand the sweetest reality of Saguna and Nirguna nature.  Mano = mind, Ikshu = Sugar cane & Kodanda = Bow. Another interpretation takes this nama as Samashti mind of the manifested aspect of the Divine mother.  This makes a lot of sense as both Mind (Anthakarana) and the next nama on Tanmatras essentially are in their subtle form (sukshma rupa) the Sattva aspect of Maya (Sakthi of Brahman) as per creation theory. For details pls refer Tattva Bodha.
 
@@ -46,7 +46,7 @@ Not a great cross connection but somewhat even in the Bhagavad Gita every time A
 
 # Nama 11/1000 :  Apr 19 
 
-पञ्चतन्मात्र-सायका : pañcatanmātra-sāyakā 
+## पञ्चतन्मात्र-सायका : pañcatanmātra-sāyakā 
 
 Pañca means five and tanmātra-s are sound, touch, sight, taste and smell, the subtle modifications of the five basic elements space, air, fire, water and earth & Sayaka = arrows.
 
@@ -67,7 +67,7 @@ This is Her right upper hand and Vārāhī Devi is represented by this hand.
 
 # Nama 12/1000 : Apr 20
 
-निजारुण-प्रभापूर-मज्जद्ब्रह्माण्ड-मण्डला : nijāruṇa-prabhāpūra-majjadbrahmāṇḍa-maṇḍalā
+## निजारुण-प्रभापूर-मज्जद्ब्रह्माण्ड-मण्डला : nijāruṇa-prabhāpūra-majjadbrahmāṇḍa-maṇḍalā
 
 Her red-rose like complexion radiates the universe with red colour. From this nāma onwards, the gross description of Lalitāmbikā begins. When physical description of a God is made, it is from foot to head and for Goddesses it is from head to foot. For Lalitāmbikā, the description begins from Her head. 
 
