@@ -6,7 +6,7 @@
 vadanasmara-māṅgalya-gṛhatoraṇa-cillikā 
 vaktralakṣmī-parīvāha-calanmīnābha-locanā 
 
-17. वदनस्मर-माङ्गल्य-गृहतोरण-चिल्लिका  :vadanasmara-māṅgalya-gṛhatoraṇa-cillikā
+## 17. वदनस्मर-माङ्गल्य-गृहतोरण-चिल्लिका  :vadanasmara-māṅgalya-gṛhatoraṇa-cillikā
 
 Her face is compared to the palace of lord Manmatha (the god of love - cupid) and Her eyebrows are compared to the festoons adorning his house. Cillikā means eyebrows. It is said that Manmatha constructed an auspicious palace, copying the face of Lalitāmbikā.
 
