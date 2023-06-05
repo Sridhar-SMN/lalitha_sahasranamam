@@ -9,11 +9,11 @@ navavidruma-bimbaśrī-nyakkāri-radanacchadā
 22. पद्मराग-शिलादर्श-परिभावि-कपोलभूः. - padmarāga-śilādarśa-paribhāvi-kapolabhūḥ
 23. नवविद्रुम-बिम्बश्री-न्यक्कारि-रदनच्छदा  - navavidruma-bimbaśrī-nyakkāri-radanacchadā
 
-पद्मराग-शिलादर्श-परिभावि-कपोलभूः. - padmarāga-śilādarśa-paribhāvi-kapolabhūḥ
+## पद्मराग-शिलादर्श-परिभावि-कपोलभूः. - padmarāga-śilādarśa-paribhāvi-kapolabhūḥ
 
 Her cheeks are shining, soft and reflecting. Padmarāga is a type of ruby, red in colour. Ruby is of four types: vipra, kuruvinda, saugandhika and mansa-khanda, out of which vipra is superior. Her cheeks are reflecting red colour as Her complexion itself is red. The other ornaments that have been described above are also red in colour. The sun and the moon in Her ear lobes make Her cheeks shining red. Everything associated with Her is red. As discussed earlier, red indicates compassion. 
 
-नवविद्रुम-बिम्बश्री-न्यक्कारि-रदनच्छदा  - navavidruma-bimbaśrī-nyakkāri-radanacchadā
+## नवविद्रुम-बिम्बश्री-न्यक्कारि-रदनच्छदा  - navavidruma-bimbaśrī-nyakkāri-radanacchadā
 
 Her lips outshine fresh coral and the bimba fruit (momordica monadelpha). Bimba fruit is normally compared to beautiful lips. Both are red in colour.
 
