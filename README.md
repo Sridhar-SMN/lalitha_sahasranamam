@@ -8,6 +8,18 @@ Posts will be on weekdays only and for now have kept it as admin only to ensure 
 
 ## offering all this at the lotus feet of my Guru-Swami Paramarthanandaji, I seek the blessings of the Divine mother & Lord Subrahmanya and venture into this project. 
 
+#### quoting from Kandar Anubhuthi # 17 
+
+#### யாமோதிய  கல்வியும்  எம்மறிவும், தாமேபெற  வேலவர்  தந்ததனால்
+#### பூமேல்  மயல்போய்  அறமெய்ப்  புணர்வீர்,நாமேல்  நடவீர்  நடவீர்  இனியே
+
+#### Yaam othiya kalviyum yem arivum,Thaame pera velavar thanthathanaal
+#### Poomel mayalpoy arameip punarveer,Naamel nadaveer nadaveer iniye.
+
+#### The learning we had and our knowledge were bestowed on us by Lord Velayudha Himself. Therefore, henceforth cast aside (or overcome) the delusion on the world, be firmly united with Reality, and with the tongue ever sing His glories
+
+--------------------------------------------
+
 Namaskarams Dear All, 
 
 pleasure and a blessing to be part of this learning & sharing group and also it gives me great joy to welcome so many dear friends and family. 
