@@ -13,7 +13,7 @@ Posts will be on weekdays only and for now have kept it as admin only to ensure 
 
 #### The learning we had and our knowledge were bestowed on us by Lord Velayudha Himself. Therefore, henceforth cast aside the delusion of this body/mind & world, be firmly united with Reality, and with the tongue ever sing His glories
 
-### offering all this at the lotus feet of my Guru-Swami Paramarthanandaji, I seek the blessings of the Divine mother & Lord Subrahmanya and venture into this project. 
+### offering all this at the lotus feet of my Guru-Swami Paramarthanandaji (Swami P), I seek the blessings of the Divine mother & Lord Subrahmanya and venture into this project. 
 
 --------------------------------------------
 
@@ -41,7 +41,7 @@ one of the invocation slokas chanted before LS is quoted below.
 aruṇāṃ karuṇā taraṅgitākṣīṃ
 dhṛta pāśāṅkuśa puṣpa bāṇacāpām .
 aṇimādibhi rāvṛtāṃ mayūkhaihi-
-ahamityeva vibhāvaye bhavānīm
+#### ahamityeva vibhāvaye bhavānīm
 
 I meditate on the great Empress. She is red in color, and her eyes are full of compassion, and holds the noose, the goad, the bow and the flowery arrow in Her hands. She is surrounded on all sides by powers such as aNimA for rays and She is the Self within me 
 
