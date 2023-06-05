@@ -17,7 +17,7 @@ rāgasvarūpa-pāśāḍhyā krodhākārāṅkuśojjvalā
 # nama 6 / 1000 -  Apr 12 
 
 
-6. उद्यद्भानु-सहस्राभा -  udyadbhānu-sahasrābhā  
+## 6. उद्यद्भानु-सहस्राभा -  udyadbhānu-sahasrābhā  
 
 From here on for the next few slokas the Vimarasa (manifested) form of the Divine mother is described. This nama says - Her Manifested form shines and is bright like thousands of rising suns.  The complexion of Lalithambike is Red and pretty much in every Purana she is quoted to be this bright red in color (later in LS you will see me struggle when i try to explain why her tongue is also red but that we keep for another day).  
 
@@ -27,7 +27,7 @@ In Gita Sloka 11.12, Sanjaya pretty much uses this very nama to describe the phy
 
 # nama  7 / 1000 -  Apr 13 
 
-7. चतुर्बाहु-समन्विता  - caturbāhu-samanvitā
+## 7. चतुर्बाहु-समन्विता  - caturbāhu-samanvitā
 
 The physical appearance of Lalithambike begins here. This nama simply means - She has four arms . These four arms represent Her ministers, through whom She administers.  These ministers are described in the subsequent four namas. You will notice as we go forward that in the four hands  (chatur bhuj avatar - four hands avatar) and just like in the Gita, the Divine mother is holding something or the other in every hand, each of which represents something spiritually and practically significant. A question that may come to our mind is where is the blessed hand that is supposed to show us the "Abhaya" sign ?  She is not like typical image we see of a deity showing one palm and kind of saying -  "dont worry, i am there & have got your back".   It is here that the brilliance of our Rishis shines through and there is a subsequent nama in LS and a related story on the idol of the Goddess in the Lalithambike temple at Thirumeychur that will reveal a very subtle yet beautiful point.
 
@@ -35,11 +35,7 @@ The physical appearance of Lalithambike begins here. This nama simply means - Sh
 
 Probably the 2 most important namas in our spiritual journey are coming up in 8 and 9. Pretty much every scripture has this and it is borrowed from the Mahanarayana Upanishad. 
 
-Lord Krishna borrows this concept heavily into the Gita and quotes this as  the “2 enemies of life” to be overcome. We will see how with Lalithambike’s blessing we conquer them. 
-
-The Kamokarsheet Japam  (jaap) orginally from the Mahanarayana Upanishad and in this mantra Kamoekarsheet Manyurakarsheet Namo namaha both Desire (Kama) and Anger (Manyu) are raised to a special  status and salutations is given to them. Even gods are bound to  these qualities.
-
-‘Kamokarsheet’ in Sanskrit means ‘those acts that are out of desire’.‘Manyurakarsheet’   means “those acts that are committed out of anger”.
+Lord Krishna borrows this concept heavily into the Gita and quotes this as  the “2 enemies of life” to be overcome. We will see how with Lalithambike’s blessing we conquer them. The Kamokarsheet Japam  (jaap) orginally from the Mahanarayana Upanishad and in this mantra Kamoekarsheet Manyurakarsheet Namo namaha both Desire (Kama) and Anger (Manyu) are raised to a special  status and salutations is given to them. Even gods are bound to  these qualities. ‘Kamokarsheet’ in Sanskrit means ‘those acts that are out of desire’.‘Manyurakarsheet’   means “those acts that are committed out of anger”.
 
 A wise Jnani (when he was a little boy) was always doing a particular japam and here goes the story : 
 
@@ -103,7 +99,7 @@ Prayer to Lalithambike with the chant of LS is believed to have the same effect 
 
 # nama 8 / 1000 - Apr 14
 
-रागस्वरूप-पाशाढ्या - rāgasvarūpa-pāśāḍhyā
+## रागस्वरूप-पाशाढ्या - rāgasvarūpa-pāśāḍhyā
 
 This nama means - Holding the noose that helps pull desires. Here the word used to describe desire is Raga (Desire / Wish or Ichha). 
 
@@ -124,7 +120,7 @@ And straight away in as early as the 2nd verse LS swoops in like a Vulture on ou
 
 # nama 9 / 1000 - Apr 17
 
-क्रोधाकाराङ्कुशोज्ज्वला- krodhākārāṅkuśojjvalā 
+## क्रोधाकाराङ्कुशोज्ज्वला- krodhākārāṅkuśojjvalā 
 
 Same logic as the previous nama and while nama 8 covered the topic of ‘desire’ this nama covers ‘anger’. 
 
