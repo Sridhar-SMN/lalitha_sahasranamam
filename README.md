@@ -99,14 +99,9 @@ May the divine mother bless all of you and your families on this auspicious Pang
 
 1. [Verse_28](verse_028.md) 
 
-<!--
-1. [Verse 22](verse_022.md)
-1. [Verse 23](verse_023.md)
-1. [Verse 24](verse_024.md)
-1. [Verse 25](verse_025.md)
-1. [Verse 26](verse_026.md)
-1. [Verse 27](verse_027.md)
-1. [Verse 28](verse_028.md)
 1. [Verse 29](verse_029.md)
+
 1. [Verse 30](verse_030.md)
--->
+
+1. [Verse 31](verse_031.md)
+
