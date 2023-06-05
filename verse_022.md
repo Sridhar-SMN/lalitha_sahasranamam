@@ -9,7 +9,7 @@ cintāmaṇi-gṛhāntasthā pañca-brahmāsana-sthitā
 55. सुमेरु-मध्य-श‍ृङ्गस्था - sumeru-madhya-śṛṅgasthā 
 56. श्रीमन्नगर-नायिका - śrīmannagara-nāyikā 
 57. चिन्तामणि-गृहान्तस्था - cintāmaṇi-gṛhāntasthā 
-58.पञ्च-ब्रह्मासन-स्थिता - pañca-brahmāsana-sthitā
+58. पञ्च-ब्रह्मासन-स्थिता - pañca-brahmāsana-sthitā
 
 # verse 22 - namas 55 & 56 - May 22 
 
