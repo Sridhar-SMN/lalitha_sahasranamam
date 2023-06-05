@@ -1,4 +1,4 @@
-# Verse 8 - nama 21 & 22 - Apr 27 
+# Verse 8 - nama 21 & 22/1000 - Apr 27 
 
 कदम्बमञ्जरी-कॢप्त-कर्णपूर-मनोहरा ।
 ताटङ्क-युगली-भूत-तपनोडुप-मण्डला ॥ 
@@ -9,13 +9,13 @@ tāṭaṅka-yugalī-bhūta-tapanoḍupa-maṇḍalā
 21. कदम्बमञ्जरी-कॢप्त-कर्णपूर-मनोहरा :  kadambamañjarī-kḷpta-karṇapūra-manoharā 
 22. ताटङ्क-युगली-भूत-तपनोडुप-मण्डला : tāṭaṅka-yugalī-bhūta-tapanoḍupa-maṇḍalā
 
-## कदम्बमञ्जरी-कॢप्त-कर्णपूर-मनोहरा :  kadambamañjarī-kḷpta-karṇapūra-manoharā
+## 21.कदम्बमञ्जरी-कॢप्त-कर्णपूर-मनोहरा :  kadambamañjarī-kḷpta-karṇapūra-manoharā
 
 She is wearing the petals of kadhamba flowers in Her ears or flowers kept in Her hair flow down to Her ears. These flowers are grown outside Her Cintāmani graha (The palace where She lives). These flowers have divine fragrance, which is derived from Her ear lobes. 
 
 There is a very famous scene from a Tamil movie Thiruvilayadal (the play of Lord Shiva) based on this very nama and for those of you who have visited Madurai Meenakshi Amman temple and know the movie will note that the climax of the first story in the movie (and use of this nama by Lord Shiva) with the revival of the ‘burnt to ashes Sage Nakkeran’  happens at the tank/pond you saw inside the temple. ###
 
-## ताटङ्क-युगली-भूत-तपनोडुप-मण्डला : tāṭaṅka-yugalī-bhūta-tapanoḍupa-maṇḍalā
+## 22. ताटङ्क-युगली-भूत-तपनोडुप-मण्डला : tāṭaṅka-yugalī-bhūta-tapanoḍupa-maṇḍalā
 
 She is wearing sun and moon as Her ear rings. This means She controls all the activities of the universe, as sun and moon are responsible for sustaining life. It is also said that sun and moon represent her eyes, earrings and bosoms.  
 
