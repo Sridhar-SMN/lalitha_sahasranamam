@@ -9,13 +9,13 @@ padadvaya-prabhājāla-parākṛta-saroruhā
 44. नख-दीधिति-संछन्न-नमज्जन-तमोगुणा  - nakha-dīdhiti-saṃchanna-namajjana-tamoguṇā 
 45. पदद्वय-प्रभाजाल-पराकृत-सरोरुहा - padadvaya-prabhājāla-parākṛta-saroruhā 
 
-नख-दीधिति-संछन्न-नमज्जन-तमोगुणा  - nakha-dīdhiti-saṃchanna-namajjana-tamoguṇā
+## नख-दीधिति-संछन्न-नमज्जन-तमोगुणा  - nakha-dīdhiti-saṃchanna-namajjana-tamoguṇā
 
 The rays of Her nails remove the ignorance of those who bow before Her. When Deva-s and asura-s (demons) pay their reverence to Her by bowing, the rays of the gems emanating from their crowns are in no comparison to the rays emanating from the nails of Her feet. The rays that come out of Her nails destroy the tamo guṇa (inertia) and ignorance of those who worship Her.
 
 It is also said that She does not bless with Her hands, but with Her feet - refer footnote below . She does not have abhaya and varada hands. Normally one can notice that most of the Gods have four hands, out of which one is meant for blessings and another for giving boons. Lalitambike does not have these two hands as She has four powerful goddesses (nāma-s 8, 9, 10 and 11) in Her four hands and the 4 instruments we saw earlier. The two acts of blessings and granting boons are done by Her lotus feet.
 
-पदद्वय-प्रभाजाल-पराकृत-सरोरुहा - padadvaya-prabhājāla-parākṛta-saroruhā
+## पदद्वय-प्रभाजाल-पराकृत-सरोरुहा - padadvaya-prabhājāla-parākṛta-saroruhā
 
 The beauty of Her feet is much more than a lotus. Generally lotus flower is compared to the eyes and feet of gods and goddesses. In Saundarya Laharī (verse 2) says “Gathering tiniest speck of dust from your lotus feet, Brahma creates the worlds, Viṣṇu sustains them and Śiva pulverising them into ashes besmears His body with them.”
 
