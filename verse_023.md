@@ -95,6 +95,6 @@ Footnote : Any reference to Kamadayini has to be equated to Gita 9.22 and unders
 
 Does not the Lord surely arrange for securing what they lack and protecting what they have even in the case of other devotees? This is true. He does arrange for it. But the difference lies in this: Others who are devotees (not the Nishkama Jnani) make their own efforts as well for their own sake, to arrange for securing what they lack and protecting what they have. On the contrary, those who have realized non-duality do not make any effort to arrange for themselves the acquisition of what they do not have and the preservation of what they have. Indeed, they desire nothing for themselves, in life or in death. They have taken refuge only in the Lord. Therefore the Lord Himself arranges to procure what they do not have and protect what they have got. कामदायिनी - kāmadāyinī has to be understood in this context. 
 
-## Expressing the sequence in Gita Slokas : 2.47 —> 6.05 —> 7.14 —> 9.22 —> 10.11 —> 2.16 —> 13.03 (क्षेत्रज्ञं चापि मां विद्धि = Tat Tvam Asi) --> 18.66 —> 5.8 & 5.9 --> 3.17 --> Jeevan Mukthi here and now
+### Expressing the sequence in Gita Slokas : 2.47 —> 6.05 —> 7.14 —> 9.22 —> 10.11 —> 2.16 —> 13.03 (क्षेत्रज्ञं चापि मां विद्धि = Tat Tvam Asi) --> 18.66 —> 5.8 & 5.9 --> 3.17 --> Jeevan Mukthi here and now
 
 (given half a chance i will petition to Lord Krishna to make sloka 3.17 the grand finale of the Bhagavad Gita)
