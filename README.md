@@ -36,12 +36,7 @@ one of the invocation slokas chanted before LS is quoted below.
 अरुणां करुणातरङ्गिताक्षीं
 धृतपाशाङ्कुशपुष्पबाणचापाम् ।
 अणिमादिभिरावृतां मयुखैः
-अहमित्येव विभावये भवानीम्॥
-
-aruṇāṃ karuṇā taraṅgitākṣīṃ
-dhṛta pāśāṅkuśa puṣpa bāṇacāpām .
-aṇimādibhi rāvṛtāṃ mayūkhaihi-
-#### ahamityeva vibhāvaye bhavānīm
+#### अहमित्येव विभावये भवानीम्॥
 
 I meditate on the great Empress. She is red in color, and her eyes are full of compassion, and holds the noose, the goad, the bow and the flowery arrow in Her hands. She is surrounded on all sides by powers such as aNimA for rays and She is the Self within me 
 
