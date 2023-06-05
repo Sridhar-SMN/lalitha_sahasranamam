@@ -1,4 +1,4 @@
-## Verse 23 - namas 59-63 
+# Verse 23 - namas 59-63/1000
 
 महापद्माटवी-संस्था कदम्बवन-वासिनी ।
 सुधासागर-मध्यस्था कामाक्षी कामदायिनी ॥
@@ -12,9 +12,9 @@ sudhāsāgara-madhyasthā kāmākṣī kāmadāyinī
 62. कामाक्षी - kāmākṣī
 63. कामदायिनी - kāmadāyinī
 
-## Nama 59 & 60 - May 24
+# Nama 59 & 60 - May 24
 
-## महापद्माटवी-संस्था - mahāpadmāṭavī-saṃsthā
+## 59. महापद्माटवी-संस्था - mahāpadmāṭavī-saṃsthā
 
 She dwells in a great forest full of lotus flowers is the gross meaning but more subtly this nāma talks about the crown chakra or sahasrāra, situated above the six chakras of our body. A minute aperture in the centre of sahasrāra is called brahmarandhra or padmāṭavī. The divine energy enters human body through this aperture only. Human contact with higher planes is established through this aperture.  This aperture is connected to all the six cakras. The Siva Sakthi aikyam of Sakthi conjoining  Her consort Śiva is in  sahasrāra. This nāma talks about Her domicile in the middle of a thousand petal lotus or sahasrāra.  With Lotus found in water, this nama is also known to refer to the water tatvam of the pancha boothas.
 
@@ -22,7 +22,7 @@ In Bhagavad Gita Chapter 8 Lord Krishna talks about the requirements for Krama M
 
 so as per Gita 8.05/8.06 while it is important to remember the Lord's name for Krama Mukthi (not a requirement for Jeevan Mukthi) at point of death, it is only one of the many requirements to be on the direct flight to Brahm Lok. So if you miss provisions of 8.10 and/or the previous slokas and as such are reborn in Matunga or Ang Mo Kio or Chandni Chowk or worse in a Republican state in USA, don't grow up in next birth and try to sue Lord Krishna. He would have already factored in the Yog Brasht clause and hopefully given you a nicer birth (for chanting his name at the time of death) but he is not responsible for you not being in Brahma Lok. He will merely give you another copy of slokas 8.04-8.12 and ask you to read it properly this time as you go around the Sun 😀.
 
-## कदम्बवन-वासिनी - kadambavana-vāsinī
+## 60. कदम्बवन-वासिनी - kadambavana-vāsinī
 
 She lives in the middle of kadaṃba trees whose flowers have divine fragrance. Her Cintāmaṇi graha is surrounded by a forest of kadaṃba trees. Nature’s greenery is mentioned here. By such narrations, Vāc Devis describe Her pṛthivī (earth of the pancha bhutas) tattvam. She is also called Mother Earth - Bhumadevi.
 
@@ -33,9 +33,9 @@ Footnote
 
 Fans of Madurai and Madurai Meenakshi Amman temple will be thrilled to read this : It is  said that when King Kulasekara Pandiyan was on the lookout for an ideal place to establish the capital city of his kingdom, he stumbled upon a forest of kadamba trees. And that’s exactly where he constructed Madurai with the Meenakshi temple at its heart. The Tiruvilaiyadal Puranam refers to the city as ‘Kadambavanam’ and even today, one can find kadamba trees dotting the Aadi Streets inside the temple complex; a big tree stands right behind the imposing West Tower. It is not without reason that the kadamba tree is revered as the sthala vriksham (tree) of the Madurai temple.
 
-## nama 61 - May 25 
+# nama 61 - May 25 
 
-## सुधासागर-मध्यस्था - sudhāsāgara-madhyastha
+## 61. सुधासागर-मध्यस्था - sudhāsāgara-madhyastha
 
 She resides in the middle of the ocean of nectar. Sudhā means nectar, sāgara means ocean and madhyasthā means centre. Sudhā- sāgara is a place in sahasrāra. Just before sahasrāra, there is a place called soma cakra. When kuṇḍalinī reaches this soma cakra, due to the extreme heat, a liquid flows down through the throat (nāma 106). This liquid is called sudhā as its viscosity and taste resembles nectar. This liquid is also called amrṭavarśinī. Amrṭam also means nectar. She being present in the middle of this soma cakra in the midst of ocean of nectar causes this nectar to flow into all the 72,000 (nāḍi-s) nerves of human body. It is said that, if this nectar flows into our body, it does not cause death to the physical body. However this is possible only during advanced stage of kuṇḍalinī meditation. This is said to be the reason for long life of great sages.
 
@@ -56,9 +56,9 @@ Gita 3.14
 
 From food are born the creatures; the origin of food is from rainfall; rainfall originates from sacrifice; sacrifice has action as its origin
 
-## nama 62  - May 26
+# nama 62  - May 26
 
-## कामाक्षी - kāmākṣī
+## 62.कामाक्षी - kāmākṣī
 
 I am glad this nama came up on a Friday as we need to use this nama 62 to set the stage for nama 64 onwards which is the slaying of Bhandasura - Bhandasura = Bhandam+Asura and the real meaning of is Bhandam is attachment caused by false identification with body/mind  & asura is the evil of attachment associated with this mistaken identification.   In a separate footnote below, I have tried to capture the salient features of the significance of Navrathri, the chanting of Durga Saptashati and what is all this killing by the Devi really mean. It will set a nice parallel as we go thru the rest of LS. Nama 64 onwards is the killing of Bhandasura. 
 
@@ -79,7 +79,7 @@ A brief capture of the significance of some of these stories where the demons ar
 And finally the prayer that was given to Suratha and Samadhi was nothing less than the spectacular Devi Suktham.  This is the oldest hymn from the Vedas and probably the first known "Girl Power" moment. Sage Vagambrini, the young girl, was all of 16 years old when she with the power of her karmic momentum realised the truth about her real nature and chanted the Suktham which is now called Devi Suktham - she sees all reality as one and in her true nature claims She is everything.  Not from the point of view of her body/mind but as the Atman.  Suratha and Samadhi chanted Devi Suktham for 3 years continuously (in addition to developing adequate Sadhana Chatustayam) and were blessed with the realisation of the non-dual truth at the end of their penance/tapas. 
 
 
-## nama 63  - May 29
+# nama 63  - May 29
 
 ## कामदायिनी - kāmadāyinī
 
