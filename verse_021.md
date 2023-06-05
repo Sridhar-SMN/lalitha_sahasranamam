@@ -17,23 +17,23 @@ sarvāruṇā’navadyāṅgī sarvābharaṇa-bhūṣitā
 
 ## Verse 21 - namas 49 & 50 - May 16 
 
-सर्वारुणा - sarvāruṇā
+## सर्वारुणा - sarvāruṇā
 
 Sarvam + aruṇam = everything in red. Everything associated with Her is red. If you remember we started with the invocation sloka where the first words was "Aruna" -  अरुणां करुणातरङ्गिताक्षीं and in a subsequent nama we debated whether or not to overcomplicate Aruna to mean light and therefore Consciousness but postponed that torture to when dealing with Nirguna Svarupam. We will maintain that discipline especially given this is the last sloka which describes the Saguna Svarupam.  Basically everything associated with the Divine Mother is "Red" and just to do something different we took a green saree as offering during our last visit to the temple @ Thirumeychur.  Even the Divine Mother needs a change in uniform once in a while. 
 
 and again, another clarion call to the Chinese to switch spiritual loyalties 🙂
 
-अनवद्याङ्गी - anavadyāṅgī
+## अनवद्याङ्गी - anavadyāṅgī
 
 Every part of Her body is flawless and in accordance with samudrikā lakśana or śāstra. She is nirguṇa Brahman (without attributes) as well as saguṇa Brahman (with attributes). When She is known as saguṇa Brahman She is with form and attributes. Saguṇa Brahman is discussed here in this nama. As Swami P says the difference between a Jiva and an Avatara - Avatara descends into the form and has full control over the Maya/Prakriti and always aware of His/Her true nature, but the Jiva falls into birth completely oblivious of the trappings of Prakriti/Maya (as highlighted by Lord Krishna in BG 3.27 and 7.13)
 
 ## verse 21 - namas 51 & 52  - May 17
 
-सर्वाभरण-भूषिता - sarvābharaṇa-bhūṣitā
+## सर्वाभरण-भूषिता - sarvābharaṇa-bhūṣitā
 
 She is adorned with all types of ornaments. The Kālika Purāṇa mentions forty types of ornaments. Parasurāma Kalpa Sūtra, one of the authoritative texts on Śrī Cakra pūja (ritual worship) mentions more number of ornaments that adorn Her.  Though many believe that the description of her physical form ends with this nāma, some scholars are of the opinion that physical description ends with nāma 55 only. However 48 to 51 describe Her form of prakāśa and vimarśa combined.
 
-शिव-कामेश्वराङ्कस्था - śiva-kāmeśvarāṅkasthā
+## शिव-कामेश्वराङ्कस्था - śiva-kāmeśvarāṅkasthā
 
 Her seating posture begins from this nāma. She sits on the left thigh of Śiva. This is the form of saguṇa Brahman. Śiva is prakāśa form and self illuminating and Śaktī is His vimarśa form. It is good to meditate upon this posture of Them. Why She is sitting on his left thigh? Heart is on the left side and She is said to be Śiva’s heart (could also mean love).
 Kāma here means divine desire/knowledge, Śiva means auspicious & Īśvara means the supreme ruler. Knowledge is said to be the form of Śiva.  Here all the qualities of the saguṇa Brahman are covered.  This saguṇa Brahman is called Śaktī or prakāśa vimarśa mahā māyā svarūpinī. 
@@ -56,7 +56,7 @@ Meaning : Resorting to  My own prakrti under My control, I project forth again a
 
 ## verse 21 - namas 53  - May 18
 
-शिवा - shiva/siva  
+## शिवा - shiva/siva  
 
 To explain this nama I will cut/paste 2 explanations and one more from my notes on Upanishads. Essentially using the nama the Nirguna Brahman tatvam of Lalithambike is explained.
 
@@ -85,3 +85,22 @@ Aa ya : singular 'asmi' in sanskrit/tamil grammar becomes 'aa ya' in plural
 Therefore Namah Shivaya  is a prayer which can be captured as -  May all the Jivas following the sincere path of as laid down by the scriptures realise their true nature as  Brahman
 
 Namah Shivaya is the plural of the Mahavakyam ‘Aham Brahmasmi’. (due credit to a great guru from Bangalore who explained this in his discourse on the Tamil Siva Puranam which starts with the words - Namah Shivaya)
+
+## 54. स्वाधीन-वल्लभा  - svādhīna-vallabhā - May 19
+
+Her consort (Śiva) belongs to Her alone essentially to mean that Maya is "power" of Brahman and one does not operate without the other. Now here the Divine Mother is presented as Brahman and Siva as Maya.  It is not controversial at all as between them they don’t care who you call Brahman and who Maya. No wonder Lord Krishna gets fed up in Gita 9.11 and calls those of us “fools” for not wanting to understand both His Saguna and Nirguna form. 
+
+Yesterday was listening to a Swami P’s lecture on Kaivalya Upanishad and he beautifully captured this concept.  Brief notes from the lecture below - the full video link here - https://youtu.be/978uFC6m28g
+
+Is Brahman Nirguna or Saguna ? 
+
+With Maya as an attribute Brahman is Saguna but remember even the attribute is Mithya (does not have an independent reality). With Mithya attribute Brahman is Sagunam but by itself Brahman is Nirgunam.  So the answer is Brahman is both Sagunam and Nirgunam. From a vyavaharika angle Brahman is Sagunam and from Paramarthika angle Brahman is Nirguna. 
+
+The puzzling thing about the concept of Maya in the Bhagavad Gita is you would expect it will be found in many places, but not really. The word only appears twice in 7.14 and 7.15 . Lord tries this back door in 9.04 to 9.06 and again in 15.03 but not easy to unearth. Lord mostly sticks to Para and Apara Prakriti or Purusha/Prakriti paradigm. 
+
+The concept of Maya comes later in the LS and we will cover it there.
+
+(In many places in LS, Lalithambike will be presented as Nirguna Brahman and I have borrowed that here to get the ball rolling. Same with every scripture. Each scripture will glorify its deity to a higher status. The individual deities themselves are agnostic but as Swami P says in the audio above only we humans confuse the topic and claim one form is superior to another. As mentioned in nama 9 (Apr 17) the form we use to depict Saguna Brahman is not a material discussion. The greater emphasis is trying to get the essence of both the Saguna and Nirguna aspect)
+
+
+Next post on Asia Monday . Wishing all a blessed weekend 🙏
