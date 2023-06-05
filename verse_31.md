@@ -23,3 +23,8 @@ Adi Shankaracharya's explanation of this sloka is so beautiful : Hi, since; esa,
 ## 79. भण्डासुरेन्द्र-निर्मुक्त-शस्त्र-प्रत्यस्त्र-वर्षिणी - bhaṇḍāsurendra-nirmukta-śastra-pratyastra-varṣiṇī
 
 She is showering missiles in response to the weapons thrown by Bhandasura.  According to Dhanurveda, the difference between Sastra and Astra is as follows: Sastra is that with which one strikes his enemies. It is always held in hand. Astra is that which is thrown out, or discharged by the hand, as the arrow of a bow. The magic figure of Visukra and the missiles of Bhandasura, refer to the different modifications of nescience (Avidya) - Would refer you back to the Rakthabheeja story that we saw on May 26th  and "Devi showering missiles" means the continuance of the act of divine grace showered to help realising the supreme individuality.
+
+
+---------------------
+
+I was hoping to get to nama 84 before the break but realised that the next 5-6 namas are closely interconnected and need longish explanations and therefore not ideal to leave them hanging and as such it is probably better we head into the break from today. We will let Bhandasura (within us) live slightly longer than planned 😌. Will try to restart on July 24th or latest by July 31st. Wishing all a good summer break.
