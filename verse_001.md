@@ -90,7 +90,7 @@ By necessity in her manifestation she also slays the Asuras (Bhandasura and Mahi
 
 Here ‘Devas’ to be interpreted as the sincere seeker who is Sadhana Chatushtaya Sampanna adhikari (Viveka, Viragya, Shat Sampathi and Mumukshutvam) , who having done selfless karma yoga and achieved ekagrata (concentration) thru sincere devotion to his/her ishta devata is all set to receive this grace.  The Divine mother is very much here within us in this body/mind itself  to vacuum clean away anything (the asuras within) that might detract us from realising Her as the ever present ultimate prize. 
 
-SPji explains this in the audio which I shared last week - it is *bold* ONLY with the grace of the divine mother that will we be able to propel ahead overcoming the enormous weight of our past karmas and as devakārya-samudyatā, Lalithambike is there here in us to make that happen ## 
+SPji explains this in the audio which I shared last week - it is ##ONLY with the grace of the divine mother that will we be able to propel ahead overcoming the enormous weight of our past karmas and as devakārya-samudyatā, Lalithambike is there here in us to make that happen ## 
 
 This nama also serves as the bridge shifting the focus from the  Prakasa (unmanifest) to the Vimarsa (manifest) aspect of the Divine Mother and will segue nicely into the next few slokas which describe Her Vimarsa aspect.
 
