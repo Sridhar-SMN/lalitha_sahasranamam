@@ -9,11 +9,11 @@ stanabhāra-dalanmadhya-paṭṭabandha-valitrayā
 35. लक्ष्यरोम-लताधारता-समुन्नेय-मध्यमा - lakṣyaroma-latādhāratā-samunneya-madhyamā 
 36. स्तनभार-दलन्मध्य-पट्टबन्ध-वलित्रया  - stanabhāra-dalanmadhya-paṭṭabandha-valitrayā 
 
-लक्ष्यरोम-लताधारता-समुन्नेय-मध्यमा - lakṣyaroma-latādhāratā-samunneya-madhyamā
+## लक्ष्यरोम-लताधारता-समुन्नेय-मध्यमा - lakṣyaroma-latādhāratā-samunneya-madhyamā
 
 Her waist is to be known only from creeper like hair as described in the previous nāma. The secretive meaning is that ātma is subtle and can be known only by keen observation & application - Shravanam, Mananam & Nidhidhyasanam -SMN. Without adequate SMN if we sit it in meditation we merely shift from being a agitated ajnani to a calm ajnani. 
 
-स्तनभार-दलन्मध्य-पट्टबन्ध-वलित्रया  - stanabhāra-dalanmadhya-paṭṭabandha-valitrayā
+## स्तनभार-दलन्मध्य-पट्टबन्ध-वलित्रया  - stanabhāra-dalanmadhya-paṭṭabandha-valitrayā
 
 The golden belt that She wears supports Her waist as it bends under the heaviness of Her bosoms, resulting in three folds in Her stomach area.
 
