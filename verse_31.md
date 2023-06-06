@@ -11,7 +11,7 @@ bhaṇḍāsurendra-nirmukta-śastra-pratyastra-varṣiṇī
 
 ## 78.महागणेश-निर्भिन्न-विघ्नयन्त्र-प्रहर्षिता - mahāgaṇeśa-nirbhinna-vighnayantra-praharṣitā
 
-This is in continuation of the previousnāma. Lord Gaṇeśha was createdto remove the yantra, jaya vignaṁ planted by Bhandāsurā. Lord Gaṇeśhā removed that yantra and helped the army of Lalithambike to regain their self confidence. She was delighted with Gaṇeśa, when he removed the effects of the yantra.  All activities that detract us from our real nature are represented by this yantra of the Puryastakas. Ignorance Māyā is the cause of such acts. This Māyā is caused by the Divine mother  and She alone can remove the veil of māyā.  Once She decides to remove the veil, pure Śiva is realized. But Lalithambike, on Her own, will not remove the veil. She will remove the veil of māyā depending upon one’s efforts and then the whole guru/scripture jing bang will be blessed on us. 
+This is in continuation of the previous nāma. Lord Gaṇeśha was created to remove the yantra, jaya vignaṁ planted by Bhandāsurā. Lord Gaṇeśhā removed that yantra and helped the army of Lalithambike to regain their self confidence. She was delighted with Gaṇeśa, when he removed the effects of the yantra.  All activities that detract us from our real nature are represented by this yantra of the Puryastakas. Ignorance Māyā is the cause of such acts. This Māyā is caused by the Divine mother  and She alone can remove the veil of māyā.  Once She decides to remove the veil, pure Śiva is realized. But Lalithambike, on Her own, will not remove the veil. She will remove the veil of māyā depending upon one’s efforts and then the whole guru/scripture jing bang will be blessed on us. 
 
 Lord Krishna says this beautifully in Gita sloka 7.14 
 
