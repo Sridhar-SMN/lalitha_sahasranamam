@@ -120,5 +120,5 @@ May the divine mother bless all of you and your families on this auspicious Pang
 
 1. [Verse 37](verse_37.md)
 
-1. [Verse 38](verse_38.md)
+
 
