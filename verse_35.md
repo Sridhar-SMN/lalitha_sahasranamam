@@ -1,0 +1,7 @@
+# Verse 35 - namas 86 & 87
+
+कण्ठाधः-कटि-पर्यन्त-मध्यकूट-स्वरूपिणी ।
+शक्ति-कूटैकतापन्न-कट्यधोभाग-धारिणी ||
+
+kaṇṭhādhaḥ-kaṭi-paryanta-madhyakūṭa-svarūpiṇī 
+śakti-kūṭaikatāpanna-kaṭyadhobhāga-dhāriṇī
