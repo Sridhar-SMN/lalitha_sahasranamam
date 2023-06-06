@@ -8,8 +8,7 @@ Posts will be on weekdays only and for now have kept it as admin only to ensure 
 
 #### quoting from Kandar Anubhuthi # 17 and fully cognisant that everything is revelaed by divine grace
 
-#### யாமோதிய  கல்வியும்  எம்மறிவும், தாமேபெற  வேலவர்  தந்ததனால்
-#### பூமேல்  மயல்போய்  அறமெய்ப்  புணர்வீர்,நாமேல்  நடவீர்  நடவீர்  இனியே
+#### யாமோதிய  கல்வியும்  எம்மறிவும், தாமேபெற  வேலவர்  தந்ததனால்; பூமேல்  மயல்போய்  அறமெய்ப்  புணர்வீர், நாமேல்  நடவீர்  நடவீர்  இனியே
 
 #### The learning we had and our knowledge were bestowed on us by Lord Velayudha Himself. Therefore, henceforth cast aside the delusion of this body/mind & world, be firmly united with Reality, and with the tongue ever sing His glories
 
