@@ -12,6 +12,16 @@ Posts will be on weekdays only and for now have kept it as admin only to ensure 
 
 #### The learning we had and our knowledge were bestowed on us by Lord Velayudha Himself. Therefore, henceforth cast aside the delusion of this body/mind & world, be firmly united with Reality, and with the tongue ever sing His glories
 
+##### Source & Credits 
+
+1. commentary by Baskararaya translated by Ananthakrishna Sastry 
+
+https://sahasrakshi.com/2020/06/sri-lalita-sahasranamam-with-bhaskararayas-commentary/
+
+2. Lalitha Sahasranamam - V V Ravi - Manblunder publications 
+
+3. Swami Paramathmanandaji’s various lectures where he cross references Lalitha Sahasranamam and also Swamiji’s and Swami Sarvapriyanandaji’s lectures on Gita and the Upanishads.
+
 ### offering all this at the lotus feet of my Guru-Swami Paramarthanandaji (Swami P), I seek the blessings of the Divine mother & Lord Subrahmanya and venture into this project. 
 
 --------------------------------------------
