@@ -26,7 +26,7 @@ so as per Gita 8.05/8.06 while it is important to remember the Lord's name for K
 
 She lives in the middle of kadaṃba trees whose flowers have divine fragrance. Her Cintāmaṇi graha is surrounded by a forest of kadaṃba trees. Nature’s greenery is mentioned here. By such narrations, Vāc Devis describe Her pṛthivī (earth of the pancha bhutas) tattvam. She is also called Mother Earth - Bhumadevi.
 
-Kadamba tree :  There is a major spiritual and puranic significance of Kadamba trees.  It is all over Srimad Bhagavatam, Shiva Puranam, Thirupugazh etc.  Goddess Lakshmi wore the garland made of Kadamba flowers from Lord Vishnu. Pretty much every God/Goddess are known to wear this during their wedding/union (you will remember we started this group on Panguni Uthiram day). 
+#### Kadamba tree :  There is a major spiritual and puranic significance of Kadamba trees.  It is all over Srimad Bhagavatam, Shiva Puranam, Thirupugazh etc.  Goddess Lakshmi wore the garland made of Kadamba flowers from Lord Vishnu. Pretty much every God/Goddess are known to wear this during their wedding/union (you will remember we started this group on Panguni Uthiram day). 
 ------
 
 Footnote 
