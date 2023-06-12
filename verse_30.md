@@ -23,4 +23,6 @@ The word Jiva also means the man possessed of the identity of Ahamkara and of th
 
 ———-
 
-Footnote : And we won’t have the Bhagavad Gita without Lord Ganesha.  He is the first one to have understood and transcribed it.  Pls google and read the story of Sage Vyasa (who himself is an incarnation of Lord Vishnu) praying to Ganesha to be the scribe and the cute terms of agreement they sign 😀
+Footnote : And we won’t have the Bhagavad Gita without Lord Ganesha.  He is the first one to have understood and transcribed it and still some of us dont invoke Lord Ganesha in our Gita invocations - wierd to say the least - ignorance within ignorance !!  
+
+Pls google and read the story of Sage Vyasa (who himself is an incarnation of Lord Vishnu) praying to Ganesha to be the scribe and the cute terms of agreement they sign 😀
