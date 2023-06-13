@@ -25,4 +25,12 @@ The word Jiva also means the man possessed of the identity of Ahamkara and of th
 
 Footnote : And we won’t have the Bhagavad Gita without Lord Ganesha.  He is the first one to have understood and transcribed it and still some of us dont invoke Lord Ganesha in our Gita invocations - wierd to say the least - ignorance within ignorance !!  
 
-Pls google and read the story of Sage Vyasa (who himself is an incarnation of Lord Vishnu) praying to Ganesha to be the scribe and the cute terms of agreement they sign 😀
+There is a further extension to this story where Lord Karthikeya gets upset, takes Sanyasa and hits the mountains. It is here that the great Sage Avvayar comes to him and points out his true nature to him by singing the song - Pazham Nee Appa - You are the Fruit already my Lord - a very beautiful and touching sequence - enacted more for our benefit and all under the Leela of Lord Shiva in Thiruvilayadal Puranam). Hence the name of the place in the famous temple in Tamil Nadu - Pazhani = Pazham Nee = You are that Fruit already=Tat Tvam Asi . And it so happens to be Ramana Maharshi’s favorite temple after Tiruvannamalai and there is a profound song in Thirupugazh on Pazhani Muruga which I like to think is the crowning glory of Saint AruNagirinathar’s composition.
+
+Here is the lyrics plus detailed meaning and a stunning rendition by Mrs TV Sundaravalli and Mrs Bhavya Hari (song starts at 5 mins in the YouTube video). Ramana Maharshi had this very song sung to him moments before taking his final samadhi 
+
+http://thiruppugazh-nectar.blogspot.com/2013/06/suruthimudi.html?m=1
+
+https://youtu.be/ADzB5vwGpfU?list=PLSkgY2jCfrFE9BlIQPsRs76VIz8vbFmj_
+
+Pls google and read the story of Sage Vyasa (who himself is an incarnation of Lord Vishnu) praying to Lord Ganesha to be the scribe and the cute terms of agreement they sign 😀
