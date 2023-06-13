@@ -27,4 +27,4 @@ She is showering missiles in response to the weapons thrown by Bhandasura.  Acco
 
 ---------------------
 
-I was hoping to get to nama 84 before the break but realised that the next 5-6 namas are closely interconnected and need longish explanations and therefore not ideal to leave them hanging and as such it is probably better we head into the break from today. We will let Bhandasura (within us) live slightly longer than planned 😌. Will try to restart on July 24th or latest by July 31st. Wishing all a good summer break.
+I was hoping to get to nama 84 before the break but realised that the next 5-6 namas are closely interconnected and need longish explanations and therefore not ideal to leave them hanging and as such it is probably better we head into the break from today. We will let Bhandasura (within us) live slightly longer than planned 😌. Will restart on July 31st. Wishing all a good summer break.
