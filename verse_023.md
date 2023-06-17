@@ -99,7 +99,7 @@ Does not the Lord surely arrange for securing what they lack and protecting what
 
 (given half a chance i will petition to Lord Krishna to make sloka 3.17 the grand finale of the Bhagavad Gita)
 
-## a beautiful comment by Swami P on how religion has increased fear in us 
+## a beautiful comment by Swami P on how religion has increased our fear as opposed to reducing fear (after all that is the final teaching of Krishna in the Gita - dont fear) 
 
 the religious fear is very rampant amidst religious people. Even though religion is meant for removing fear but most of the people practice many of the things out of sheer fear only. So many varieties of fear, that we see among religious people, are not there for a nāstika. So one day he is not able to light the lamp due to some reason, he is afraid because as a baby he has been told that Bhagavān will cut the nose and put chilli powder. If during the dīpārādhanā the light goes off, people think of many adverse things happening etc. One day japa I could not do, what will happen? Thus religion is now creating equal amount of fear as peace. Sometimes we wonder it is creating more fear than peace. Thus every Bhagavān, every deity people are afraid of. The direction in which the deity is kept people is afraid of. Religion is causing equal amount or more fear, in fact, mōkṣa is being a religious person without fear. If I cannot be a religious person without fear I feel it is better to be a nāstika or irreligious person. The sign of mōkṣa is I am a religious person but there is no fear of anything. This misplaced fear called pratyavāya bhayam.
 
