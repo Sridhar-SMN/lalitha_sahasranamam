@@ -1,4 +1,4 @@
-# Verse 32 - namas 80-81/1000 - Jul 31
+# Verse 32 - namas 80-81/1000
 
 कराङ्गुलि-नखोत्पन्न-नारायण-दशाकृतिः ।
 महा-पाशुपतास्त्राग्नि-निर्दग्धासुर-सैनिका ॥ 
@@ -10,16 +10,16 @@ mahā-pāśupatāstrāgni-nirdagdhāsura-sainikā
 81. महा-पाशुपतास्त्राग्नि-निर्दग्धासुर-सैनिका - mahā-pāśupatāstrāgni-nirdagdhāsura-sainikā
 
 
-## 80. कराङ्गुलि-नखोत्पन्न-नारायण-दशाकृतिः - karāṅguli-nakhotpanna-nārāyaṇa-daśākṛtiḥ 
+## 80. कराङ्गुलि-नखोत्पन्न-नारायण-दशाकृतिः - karāṅguli-nakhotpanna-nārāyaṇa-daśākṛtiḥ - July 31
 
-The popular explanation of this nama is "From the nails of her (ten) fingers sprang the ten forms of Närayana. Nails, joints of the mails, or finger tips. Ten forms (Dasa +Akrtih) of Narāyana are the ten incarnations of Vishnu, wiz., Fish, Tortoise, Boar, Man-lion, Dwarf, Parasurama, Rama, Balarama, Krsna and Kalki. Somehow to me this is not convincing as this seems to somwhat contradict what Lord Krishna says in sloka 4.7 of the Gita 
+The popular explanation of this nama is "From the nails of her (ten) fingers sprang the ten forms of Närayana. Nails, joints of the mails, or finger tips. Ten forms (Dasa +Akrtih) of Narāyana are the ten incarnations of Vishnu, wiz., Fish, Tortoise, Boar, Man-lion, Dwarf, Parasurama, Rama, Balarama, Krsna and Kalki. In the context of the position in the LS and the previous nama on Ganesha and how he removes obstacles and destroying the army of Bhandasura etc this interpretation makes sense and also somewhat in line with what Lord Krishna says in the Gita in sloka 4.07 
 
 यदा यदा हि धर्मस्य ग्लानिर्भवति भारत |
 अभ्युत्थानमधर्मस्य तदात्मानं सृजाम्यहम् ||
 (Whenever there is a decline in righteousness and an increase in unrighteousness, O Arjun, at that time I manifest Myself on earth) 
 
-the whole avatara theory is well explaining in the 4th chapter of the Gita by the Lord to highlight not just the role but to show that Lord as an avatara is beyond Maya and is not controlled by Maya. 
+the whole avatara theory is well explained in the 4th chapter of the Gita by the Lord to highlight not just the role but to show that Lord as an avatara is beyond Maya and is not controlled by Maya. 
 
-The more plausible explanation using the creation theory of Sankhya philosophy (pls see the pic below) which Lord Krishna explains in Gita sloka 7.05 is this refers to 5 principles of Subtle elements which come out of Maya (Sukshma Bhutani) and/or the pancha koshas of the Jiva. Dasa Akritih means Ten forms and the above accounts for five.  The remaining 5 is believed to be the 5 functions of Ishwara (Saguna Brahman) the pancha krityas - Srishti, the creative act; sthiti, the protective act; samhara, the destructive act; tirodhana, the act of enfolding or concealing His nature; and anugraha, the act of unfolding or revealing His nature represented by Brahma, Vishnu, Rudra, Mahadeva & Sadashiva.
+The other plausible explanation using the creation theory of Sankhya philosophy which Lord Krishna explains in Gita sloka 7.05 is this refers to 5 principles of Subtle elements which come out of Maya (Sukshma Bhutani) and/or the pancha koshas of the Jiva. Dasa Akritih means Ten forms and the above accounts for five.  The remaining 5 is believed to be the 5 functions of Ishwara (Saguna Brahman) the pancha krityas - Srishti, the creative act; sthiti, the protective act; samhara, the destructive act; tirodhana, the act of enfolding or concealing His nature; and anugraha, the act of unfolding or revealing His nature represented by Brahma, Vishnu, Rudra, Mahadeva & Sadashiva.  This interpretation also makes adequate sense as it shows ignorance as depicted by the whole created world including the Jiva and the role of Ishwara as the Guru (Sadashiva - which is also why the popular sloka starts as Sadashiva Samarambham, Shankaracharya Madhyamam....)  in unraveling the mystery by giving us the right knowledge. 
 
-In the context of the nama and seeing it with the previous namas this makes sense.
+
