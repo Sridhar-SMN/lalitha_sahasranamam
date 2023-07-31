@@ -24,5 +24,4 @@ The other plausible explanation using the creation theory of Sankhya philosophy 
 
 In the second explanation the only word left to be explained is Narayana and thankfully we have Swami P for being able to throw light on any question - Explaining Narayana he states it "Narasya ayanam iti Narayana - that consciousness pricinple which is the adhistanam/substratum of all Jivas) . So the 10 das akritis are the 5 subtle elements/5 koshas, 5 acts of Ishwara and Narayana is the Nirguna Brahman - Consciousness principle. 
 
-
-
+My own addition as to why all this is explained using the nails is probably to depict the Asagah nature of the Supreme Brahman/Atman we are and nails are the perfect representation of detachment as whatever we do to them does not affect us one bit.  Otherwise imagine going thru intense pain everytime we sit down to trim our nails. Maybe the suggestion here is treat this body/mind/world similar to nail - use it but dont get too carried away thinking anything happening to the nail (growing, shaping, cutting, breaking etc) affects You even though you are intimately connected to the nail.  This last para is my crazy thought so pls dont sue me.
