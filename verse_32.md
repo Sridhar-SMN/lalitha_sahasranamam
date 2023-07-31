@@ -22,4 +22,7 @@ the whole avatara theory is well explained in the 4th chapter of the Gita by the
 
 The other plausible explanation using the creation theory of Sankhya philosophy which Lord Krishna explains in Gita sloka 7.05 is this refers to 5 principles of Subtle elements which come out of Maya (Sukshma Bhutani) and/or the pancha koshas of the Jiva. Dasa Akritih means Ten forms and the above accounts for five.  The remaining 5 is believed to be the 5 functions of Ishwara (Saguna Brahman) the pancha krityas - Srishti, the creative act; sthiti, the protective act; samhara, the destructive act; tirodhana, the act of enfolding or concealing His nature; and anugraha, the act of unfolding or revealing His nature represented by Brahma, Vishnu, Rudra, Mahadeva & Sadashiva.  This interpretation also makes adequate sense as it shows ignorance as depicted by the whole created world including the Jiva and the role of Ishwara as the Guru (Sadashiva - which is also why the popular sloka starts as Sadashiva Samarambham, Shankaracharya Madhyamam....)  in unraveling the mystery by giving us the right knowledge. 
 
+In the second explanation the only word left to be explained is Narayana and thankfully we have Swami P for being able to throw light on any question - Explaining Narayana he states it "Narasya ayanam iti Narayana - that consciousness pricinple which is the adhistanam/substratum of all Jivas) . So the 10 das akritis are the 5 subtle elements/5 koshas, 5 acts of Ishwara and Narayana is the Nirguna Brahman - Consciousness principle. 
+
+
 
