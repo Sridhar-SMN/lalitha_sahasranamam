@@ -11,3 +11,6 @@ mahā-pāśupatāstrāgni-nirdagdhāsura-sainikā
 
 
 ## 80. कराङ्गुलि-नखोत्पन्न-नारायण-दशाकृतिः - karāṅguli-nakhotpanna-nārāyaṇa-daśākṛtiḥ 
+
+
+
