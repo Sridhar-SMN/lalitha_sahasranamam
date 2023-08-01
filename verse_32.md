@@ -28,7 +28,7 @@ My own addition as to why all this is explained using the nails is probably to d
 
 ## 81. महा-पाशुपतास्त्राग्नि-निर्दग्धासुर-सैनिका - mahā-pāśupatāstrāgni-nirdagdhāsura-sainikā
 
-The fire of Mahapâsupata weapons, the highest mental modifications connected with non-duality, which arise progressively according to the progressive practice (of the devotion). If you notice the word "agni" (fire) here refers to the fire of knowledge and as such the destruction of the internal enemeies who all add up to ignorance of real nature. The Mahapasupata mantra is said to the "Om Namah Shivaya received from and offered back to Lord Sadashiva (represented by Lord Dakshinamurthy). We have seen the detailed meaning of this mantra on May 18th under verse 21/nama 53. Pls refer back for details of what this implies and signifies.
+The fire of Mahapâsupata weapons, the highest mental modifications connected with non-duality, which arise progressively according to the progressive practice (of the devotion). If you notice the word "agni" (fire) here refers to the fire of knowledge and as such the destruction of the internal enemies who all add up to ignorance of real nature. The Mahapasupata mantra is said to the "Om Namah Shivaya received from and offered back to Lord Sadashiva (represented by Lord Dakshinamurthy). We have seen the detailed meaning of this mantra on May 18th under verse 21/nama 53. Pls refer back for details of what this implies and signifies.
 
 The first line of Avadhuta Gita says - ishvaranugrahad-eva pumsam advaita vasana = Truly, it is by the grace of God
 That the knowledge of Unity arises within
