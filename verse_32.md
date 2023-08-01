@@ -25,3 +25,20 @@ The other plausible explanation using the creation theory of Sankhya philosophy 
 In the second explanation the only word left to be explained is Narayana and thankfully we have Swami P for being able to throw light on any question - Explaining Narayana he states it "Narasya ayanam iti Narayana - that consciousness pricinple which is the adhistanam/substratum of all Jivas) . So the 10 das akritis are the 5 subtle elements/5 koshas, 5 acts of Ishwara and Narayana is the Nirguna Brahman - Consciousness principle. 
 
 My own addition as to why all this is explained using the nails is probably to depict the Asagah nature of the Supreme Brahman/Atman we are and nails are the perfect representation of detachment as whatever we do to them does not affect us one bit.  Otherwise imagine going thru intense pain everytime we sit down to trim our nails. Maybe the suggestion here is treat this body/mind/world similar to nail - use it but dont get too carried away thinking anything happening to the nail (growing, shaping, cutting, breaking etc) affects You even though you are intimately connected to the nail.  This last para is my crazy thought so pls dont sue me.
+
+## 81. महा-पाशुपतास्त्राग्नि-निर्दग्धासुर-सैनिका - mahā-pāśupatāstrāgni-nirdagdhāsura-sainikā
+
+The fire of Mahapâsupata weapons, the highest mental modifications connected with non-duality, which arise progressively according to the progressive practice (of the devotion). If you notice the word "agni" (fire) here refers to the fire of knowledge and as such the destruction of the internal enemeies who all add up to ignorance of real nature. The Mahapasupata mantra is said to the "Om Namah Shivaya received from and offered back to Lord Sadashiva (represented by Lord Dakshinamurthy). We have seen the detailed meaning of this mantra on May 18th under verse 21/nama 53. Pls refer back for details of what this implies and signifies.
+
+The first line of Avadhuta Gita says - ishvaranugrahad-eva pumsam advaita vasana = Truly, it is by the grace of God
+That the knowledge of Unity arises within
+
+Why go even that far when we have our favorite Lord Krishna to convey they same point so beautifully in BG 10.11 
+
+तेषामेवानुकम्पार्थमहमज्ञानजं तम: | नाशयाम्यात्मभावस्थो ज्ञानदीपेन भास्वता ||
+teṣhām evānukampārtham aham ajñāna-jaṁ tamaḥ |nāśhayāmyātma-bhāva-stho jñāna-dīpena bhāsvatā ||
+
+Adi Shankaracharya's commentary on this sloka is one for the ages - Anukampartham, out of compassion; tesam eva, for them alone, anxious as to how they may have bliss; aham, I; atmabhavasthah, residing in their hearts-atmabhavah means the seat that is the heart; being seated there itself; nasayami, destroy; tamah, the darkness; ajnanajam, born of ignorance, originating from non-discrimination, the darkness of delusion known as false comprehension; jnana-dipena, with the lamp of Knowledge, in the form of discriminating comprehension; i.e. bhasvata, with the luminous lamp of Knowledge-fed by the oil of divine grace resulting from devotion, fanned by the wind of intensity of meditation on Me, having the wick of the intellect imbued with the impressions arising from such disciplines as celibacy etc., in the receptacle of the detached mind, placed in the windless shelter of the mind withdrawn from objects and untainted by likes and dislikes, and made luminous by full Illumination resulting from the practice of constant concentration and meditation.
+
+#### Essentially this nama says the same as BG 10.11 that the Divine Mother will light the lamp of knowledge in our minds (later in one nama we will see the divine mother is the thought, the illuminer of the thought and the thinker)
+
