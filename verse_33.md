@@ -8,3 +8,7 @@ brahmopendra-mahendrādi-deva-saṃstuta-vaibhavā
 
 82. कामेश्वरास्त्र-निर्दग्ध-सभण्डासुर-शून्यका - kāmeśvarāstra-nirdagdha-sabhaṇḍāsura-śūnyakā
 83. ब्रह्मोपेन्द्र-महेन्द्रादि-देव-संस्तुत-वैभवा - brahmopendra-mahendrādi-deva-saṃstuta-vaibhavā
+
+
+## 82. कामेश्वरास्त्र-निर्दग्ध-सभण्डासुर-शून्यका - kāmeśvarāstra-nirdagdha-sabhaṇḍāsura-śūnyakā - Aug 2
+
