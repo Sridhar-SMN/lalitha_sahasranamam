@@ -27,9 +27,9 @@ kāmo yoni: kamalā vajrapāṇirguhāhasā matariśvābhrāmindraḥ| punarguh�
 
 If you remember I resumed post our summer break with the explanation of Gayatri Mantra by Swami P.  It was basically in preparation for the next 3-4 namas 
 
-तत्सवितुर्वरेण्यं। om tat saviturvareṇyaṁ | = Vagbhava Kuta 
-भर्गो देवस्य धीमही। bhargo devasya dhīmahī | = Madhya Kuta
-धियो यो नः प्रचोदयात्॥ dhiyo yo naḥ pracodayāt || = Sakti Kuta 
+तत्सवितुर्वरेण्यं।  tat saviturvareṇyaṁ = Vagbhava Kuta 
+भर्गो देवस्य धीमही। bhargo devasya dhīmahī = Madhya Kuta
+धियो यो नः प्रचोदयात्॥ dhiyo yo naḥ pracodayāt = Sakti Kuta 
 
 So there you go - the connection between the Gayatri Mantra and Pancadasi Mantra. 
 
