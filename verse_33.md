@@ -38,4 +38,14 @@ A very simple nama in praise of the Saguna aspect of Lalithambike - Her supreme 
 
 In chap 7 of the Gita (veres 7.20 to 7.23) when Lord says He is superior to other forms all that is being suggested that Lord Krishna is playing the role of Purna Devata and other Gods are represented as Apurna Devata.  I have seen folks get carried away claiming Lord Krishna is superior to Lord Shiva thereby completely missing the whole point of the Gita.  Similarly in LS what is imporant is for us to understand that arriving at the higher reality of God (which is same as our reality) is more important than the form we worship.  Sage Narada is the best example - He had diplomatic passport to all 3 lokas and could walk in out any time and always was chanting the words "narayana narayana".  But who gave him Atma Jnanam ? it was Sanathkumara - none other than Lord Muruga. So be careful that the Lord who comes to bless you with "Tat Tvam Asi" will most likely not be your Ishta Devata.  It recently happened to me at Sabarimala. Not that I got Atma Jnanam and am self realised but got a dry run of such a possibility of a different God/Guru appearing and imparting the knowledge of the ultimate truth.
 
+as luck would have it this popped up today during one lecture from Swami P - talk of Narada, Sanatkumara & Atma Jnanam.  This is one of the most famous mantras of all Upanishads.
+
+##### Chandogya Upanishad 7.24.1 
+
+यत्र नान्यत्पश्यति नान्यच्छृणोति नान्यद्विजानाति स भूमाथ यत्रान्यत्पश्यत्यन्यच्छृणोत्यन्यद्विजानाति तदल्पं यो वै भूमा तदमृतमथ यदल्पं तन्मर्त्य्ं स भगवः कस्मिन्प्रतिष्ठित इति स्वे महिम्नि यदि वा न महिम्नीति ॥ ७.२४.१ ॥
+
+yatra nānyatpaśyati nānyacchṛṇoti nānyadvijānāti sa bhūmātha yatrānyatpaśyatyanyacchṛṇotyanyadvijānāti tadalpaṃ yo vai bhūmā tadamṛtamatha yadalpaṃ tanmartyṃ sa bhagavaḥ kasminpratiṣṭhita iti sve mahimni yadi vā na mahimnīti || 7.24.1 ||
+
+Sanatkumāra said: ‘Bhūmā [the infinite] is that in which one sees nothing else, hears nothing else, and knows [i.e., finds] nothing else. But alpa [the finite] is that in which one sees something else, hears something else, and knows something else. That which is infinite is immortal, and that which is finite is mortal.’ Nārada asked, ‘Sir, what does bhūmā rest on?’ Sanatkumāra replied, ‘It rests on its own power—or not even on that power [i.e., it depends on nothing else]’.
+
 
