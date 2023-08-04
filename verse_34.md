@@ -26,7 +26,7 @@ Next post on Asia Monday. Be ready to be fascinated when we prove the Pancadasi 
 
 Wishing all a blessed weekend !
 
-## 85. श्रीमद्वाग्भव-कूटैक-स्वरूप-मुख-पङ्कजा - śrīmadvāgbhava-kūṭaika-svarūpa-mukha-paṅkajā - Aug 5
+## 85. श्रीमद्वाग्भव-कूटैक-स्वरूप-मुख-पङ्कजा - śrīmadvāgbhava-kūṭaika-svarūpa-mukha-paṅkajā - Aug 7
 
 Pañcadaśī (Panchadasi) mantra consists of three groups consisting of bīja-s and each line is called kūṭa or group. The three kūṭa-s are known as vāgbhava kūṭa,  madhya kūṭa and śakti kūtā. Vāgbhava kūṭa represents Lalitāmbikā’s face, madya kūṭa represents the portion between Her neck and hip and the last one śakti kūṭa represents the portion below Her hip. The whole form of Lalitāmbikā is made up of these three kūṭa-s. This is one of the reasons why Pañcadaśī (Panchadasi) is considered as very powerful. These three kūṭa-s are joined in such a way that an inverted triangle is formed which represents Her yoni, the source of the universe. This is why this mantra is considered as highly secretive. Vāgbhava kūṭa is the right side of this triangle, kāmarāja kūṭa the upper side and śakti kūṭa forms the left side of the triangle.
 
