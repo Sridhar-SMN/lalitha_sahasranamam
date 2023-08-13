@@ -20,7 +20,7 @@ Kulänganä = belonging to Kula, the chaste family. She belongs to such a family
 
 ## 93. कुलान्तस्था - kulāntasthā - Aug 14 
 
-Kulā also means scriptures. She resides in the midst of the scriptures - as we saw earlier in nama 85-87 that the Divine mother is the Knower, Knowledge & Known. I was tempted to write a lengthy note on what it means to have Sraddha in the scriptures but then there is a reason we are blessed with Swami P.  Pls read this transcribed note on the true meaning of Sraddha and its role in our spiritual journey.  This will help you appreciate this nama much much better and I am willing to bet truly help you see the role of scriptures. 
+Kulā also means scriptures. She resides in the midst of the scriptures - as we saw earlier in nama 85-87 that the Divine mother is the Knower, Knowledge & Known. I was tempted to write a lengthy note on what it means to have Sraddha in the scriptures but then there is a reason we are blessed with Swami P.  Pls read this transcribed note on the true meaning of Sraddha and its role in our spiritual journey.  This will help you appreciate this nama much much better and I am willing to bet truly help you see the value of our  scriptures.  (https://arshaavinash.in/index.php/download/what-is-shraddha-by-swami-paramarthananda/)
 
 ## 94. कौलिनी - kaulinī - Aug 15
 
