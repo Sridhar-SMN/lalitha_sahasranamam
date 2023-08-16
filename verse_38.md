@@ -11,3 +11,8 @@ maṇipūrānta ruditā, viṣṇugranthi vibhēdinī ॥
 101. मणि-पूरान्तरुदिता - maṇipūrāntarudita
 102. विष्णुग्रन्थि-विभेदिनी - viṣṇugranthi vibhēdinī
 
+## 99. मूलाधारैक-निलया - mūlādhāraika nilayā - Aug 17
+
+
+## 100. ब्रह्मग्रन्थि-विभेदिनी - brahmagranthi vibhēdinī - Aug 17
+
