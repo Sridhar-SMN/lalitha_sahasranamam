@@ -51,3 +51,15 @@ One of the most famous slokas of the Gita (9.22) and its profound explanation by
 ### Rudra Granthi (the knot of envy) 
 
 One of the most famous slokas from the Upanishad and according to Mahatma Gandhi if we lost all our scriptures but somehow managed to save this one sloka of the Isavasya Upanishad, we could easily resurrect the whole Sanatana Dharma https://shlokam.org/texts/ishavasya-1/ . We will cover Vishnu Granthi on Friday and Rudra Granthi on Monday
+
+## 101. मणि-पूरान्तरुदिता - maṇipūrāntarudita- Aug 18
+
+She is obtained/resides in manipura (navel) chakra. rest of the notes are same as nama 99.
+
+## 102. विष्णुग्रन्थि-विभेदिनी - viṣṇugranthi vibhēdinī - Aug 18
+
+Vishnu is the Lord of preservation and sustenance. When expressed as a "granthi - knot" it signfies excessive tendence to accumulate & hoard without sharing. The divine mother blesses the seeker with the right guru/scripture/knowledge that would be conduvice to the loosening of this knot. 
+
+Explaining Gita sloka 9.22 - Swami P says the only person qualified to get "Yogakshemam" (as promised by the Lord in 9.22) is the Vidvat Sanyasi who has renounced everything and is 100% in Nidhidyasanam mode. One has to interpreet Adi Shankarachaya carefully as otherwise this may be interpreted as sanyasa ashram but a Vidvat Sanyasi is someone who has obtained adequate chitta shuddhi (purity of mind) thru Karma Yoga, decent levels of Chittha Ekagratha (concentration) by the practice of Saguna Ishwara/Ishta Devata Upasana and then having done adequate shravanam & mananam (listening and contemplation leading to a good understanding of Tat Tvam Asi) is now in nidhidhyasanam mode ready to kick out viparatee bhavana (habitual tendencies contrary to "I am Atman) from his/her mind thanks to a firm sankalpa and systematic & disciplined practice.
+
+Pls read the advance notes i send yesterday for more detais. Wishing all a blessed weekend.
