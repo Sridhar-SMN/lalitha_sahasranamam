@@ -62,4 +62,4 @@ Vishnu is the Lord of preservation and sustenance. When expressed as a "granthi 
 
 Explaining Gita sloka 9.22 - Swami P says the only person qualified to get "Yogakshemam" (as promised by the Lord in 9.22) is the Vidvat Sanyasi who has renounced everything and is 100% in Nidhidyasanam mode. One has to interpreet Adi Shankarachaya carefully as otherwise this may be interpreted as sanyasa ashram but a Vidvat Sanyasi is someone who has obtained adequate chitta shuddhi (purity of mind) thru Karma Yoga, decent levels of Chittha Ekagratha (concentration) by the practice of Saguna Ishwara/Ishta Devata Upasana and then having done adequate shravanam & mananam (listening and contemplation leading to a good understanding of Tat Tvam Asi) is now in nidhidhyasanam mode ready to kick out viparatee bhavana (habitual tendencies contrary to "I am Atman) from his/her mind thanks to a firm sankalpa and systematic & disciplined practice.
 
-Pls read the advance notes i send yesterday for more detais. Wishing all a blessed weekend.
+Pls read the advance notes i send yesterday for more details. Wishing all a blessed weekend.
