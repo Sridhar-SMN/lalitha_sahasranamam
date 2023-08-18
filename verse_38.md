@@ -54,12 +54,16 @@ One of the most famous slokas from the Upanishad and according to Mahatma Gandhi
 
 ## 101. मणि-पूरान्तरुदिता - maṇipūrāntarudita- Aug 18
 
-She is obtained/resides in manipura (navel) chakra. rest of the notes are same as nama 99.
+She is obtained/resides in manipura (navel) chakra. Vishnu granthi at Manipura chakra signifies the entanglements from emotions related to bondage, ego and love for power. Rest of the notes are same as nama 99.
 
 ## 102. विष्णुग्रन्थि-विभेदिनी - viṣṇugranthi vibhēdinī - Aug 18
 
-Vishnu is the Lord of preservation and sustenance. When expressed as a "granthi - knot" it signfies excessive tendence to accumulate & hoard without sharing. The divine mother blesses the seeker with the right guru/scripture/knowledge that would be conduvice to the loosening of this knot. 
+Vishnu is the Lord of preservation and sustenance. When expressed as a "granthi - knot" it signfies excessive tendency to accumulate & hoard without sharing. The divine mother blesses the seeker with the right guru/scripture/knowledge that would be conduvice to the loosening of this knot. It relates to the qualities of rajas – the tendency towards excessive passion, ambition, bondage, assertiveness, individual ego and power. Once the blockage at Vishnu granthi is removed, the practitioner feels great bliss. The sustenance energy undergoes a change from the localized centers of the physical level to the universal level which means the energies of the body become harmonious with the energies of the cosmos. This is brought out by Lord Krishna in Gita sloka 3.11 
 
-Explaining Gita sloka 9.22 - Swami P says the only person qualified to get "Yogakshemam" (as promised by the Lord in 9.22) is the Vidvat Sanyasi who has renounced everything and is 100% in Nidhidyasanam mode. One has to interpreet Adi Shankarachaya carefully as otherwise this may be interpreted as sanyasa ashram but a Vidvat Sanyasi is someone who has obtained adequate chitta shuddhi (purity of mind) thru Karma Yoga, decent levels of Chittha Ekagratha (concentration) by the practice of Saguna Ishwara/Ishta Devata Upasana and then having done adequate shravanam & mananam (listening and contemplation leading to a good understanding of Tat Tvam Asi) is now in nidhidhyasanam mode ready to kick out viparatee bhavana (habitual tendencies contrary to "I am Atman) from his/her mind thanks to a firm sankalpa and systematic & disciplined practice.
+देवान्भावयतानेन ते देवा भावयन्तु व: | परस्परं भावयन्त: श्रेय: परमवाप्स्यथ ||
+By your sacrifices, the celestial gods will be pleased, and by cooperation between humans and the celestial gods, great prosperity will reign for all.  
 
-Pls read the advance notes I sent yesterday for more details. Wishing all a blessed weekend.
+The interaction between the individual personality and the cosmos begins to happen naturally & spontaneously, enhancing the quality of compassion, empathy and sharing. You would assume that for a text like the Gita the word "parasparam" (mutual care and sharing) will occur more frequently but maybe to highlight its importance the Lord uses the word only twice in the Gita - First in this sloka and second in sloka 10.09 च्चित्ता मद्गतप्राणा बोधयन्त: परस्परम् |कथयन्तश्च मां नित्यं तुष्यन्ति च रमन्ति च || (With their minds fixed on Me and their lives surrendered to Me, My devotees remain ever content in Me. They derive great satisfaction and bliss in enlightening one another about Me and in conversing about My glories). The greater the realisation that we all are the one reality the lesser the urge to satisfy this particular body/mind exclusively at the expense of others. Of course the "Me" of this sloka 10.09 is badly misinterpreted and folks drag Krishna down and claim he is promoting worship to him in his physical form (even though already in 9.11 he has called us fools for doing so). The message both in the Gita and here in LS is to appreciate both the higher and nature of Lord and understand we are no different.  The divine mother blesses us with knowledge to break thru this Vishnu Granthi. 
+
+
+Wishing all a blessed weekend.
