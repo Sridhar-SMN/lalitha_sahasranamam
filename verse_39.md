@@ -52,7 +52,7 @@ There is one 'soma chakra' in the middle of sahasrāra. When Kuṇḍalinī reac
 
 There is a beautiful description of the by Swami Sarvapriyananda narrating the Maha Samadhi experience of Swami Vivekananda. When you have the time pls listen to this Youtube link to understand this LS nama better.
 
-### Gita lecture of Swami Sarvapriyananda on Gita slokas 8.10-8.14 
+### Gita lecture of Swami Sarvapriyananda on Gita slokas 8.11-8.14 
 
 https://www.youtube.com/watch?v=osgZl9eRI28&list=PL2imXor63HtS4ewIKryBL4ZVeiaH8Ij4R&index=101
 
