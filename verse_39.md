@@ -44,6 +44,9 @@ This reverential admiration of everything, micro and macro, every being - micro 
 
 This nama is advanced Kundalini theory which I have to admit I have very little clue and basically it says when Kundalini Sakthi reaches the Sahasrara chakra the "breakthrough" happens.  Lord Krishna captures this in 2 slokas of the Gita in Chapter 8 and just reading them is enough to make you run towards Jnana Yoga taking the first available flight.  The conditions laid down for the "pranic energy" to rise to its peak and the extent of discipline and practice required is nothing short of climbing Everest in reverse.  If you are interested pls read up on Kundalini rising across the chakras (the Om Swami book is a good resource) or you can read Gita between slokas 8.10 & 8.12
 
+I am conscious that I am drifting away from explaining it the Vedanta way only because this concept appears in later namas. So have kept it simple for now.
+
+
 
 106. सुधा-साराभिवर्षिणी - sudhasarabhivarshinee
 
