@@ -33,7 +33,7 @@ She is residing above the six chakras.  I am tempted to write a longish note but
 
 ## 109. महासक्तिः - Mahashakti - Aug 24 
 
-The nama is to be split as Maha + Asaktih = Contemplation + Liking. Maha normally means great or superlative but here it used to mean 'prayer/meditation/contemplation' (it also is at times used to denote festivals)  and asaktiḥ means liking.  In a subsequent nama it will be shown that the divine mother is attained thru internal contemplation (antharmukha samaradhya) and we will cover the details when we reach there as to explain the concept we need to lay a bit more foundation.
+The nama is to be split as Maha + Asaktih = Contemplation + Liking. Maha normally means great or superlative but here it used to mean 'prayer/meditation/contemplation' (it also is at times used to denote festivals)  and asaktiḥ means liking.  In a subsequent nama it will be shown that the divine mother is attained thru internal contemplation (antharmukha samaradhya) and we will cover the details when we reach that nama because to explain the broader concept of Divine mother as our atma svarupam we need to lay a bit more foundation.
 
 ## 110. कुण्डलिनी - kundalini - Aug 25
 
