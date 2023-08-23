@@ -9,7 +9,7 @@ Mahashakti-kundalini bisatantu taniyasi ॥
 107. तडिल्लता-समरुचिः - Tatillatha samaruchi
 108. षट्चक्रोपरि-संस्थिता - shatchakropari samsthitha
 109. महासक्तिः - Mahashakti
-110. 110. कुण्डलिनी - kundalini 
+110. कुण्डलिनी - kundalini 
 111. बिसतन्तु-तनीयसी - bisatantu taniyasi
 
 ## 107. तडिल्लता-समरुचिः - Tatillatha samaruchi - Aug 23
