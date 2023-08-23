@@ -31,7 +31,7 @@ Meaning : They say lightning is Brahman. It is called lightning (Vidyut) because
 
 She is residing above the six chakras.  I am tempted to write a longish note but given the Nirguna Svarupam is going to be dealt in next few verses will spare you the torture. 
 
-## 109. महासक्तिः - Mahashakti - Aug 24 
+## 109. महासक्तिः - Mahasakti - Aug 24 
 
 The nama is to be split as Maha + Asaktih = Contemplation + Liking. Maha normally means great or superlative but here it used to mean 'prayer/meditation/contemplation' (it also is at times used to denote festivals)  and asaktiḥ means liking.  In a subsequent nama it will be shown that the divine mother is attained thru internal contemplation (antharmukha samaradhya) and we will cover the details when we reach that nama because to explain the broader concept of Divine mother as our atma svarupam we need to lay a bit more foundation.
 
