@@ -25,10 +25,18 @@ vidyud brahmetyāhuḥ; vidānādvidyut; vidyatyenaṃ pāpmano ya evaṃ veda v
 
 Meaning : They say lightning is Brahman. It is called lightning (Vidyut) because it scatters (darkness). He who knows it as such—that lightning is Brahman—scatters evils (that are ranged against) him, for lightning is indeed Brahman. Another meditation on the same Satya-Brahman, with particular result, is being introduced. They say lightning is Brahman. The derivation of lightning as Brahman is being given: It is called lightning (Vidyut) because it scatters darkness. Really lightning flashes cleaving the darkness due to clouds. He who knows it as such, knows that lightning is Brahman as possessed of the above attributes, scatters or dispels all the evils that are ranged against him. It is a fitting result for one who knows it as such—that lightning is Brahman, for lightning is indeed Brahman.
 
-So the next time you see lightning in the sky pls remember this nama and its significance
+#### So the next time you see lightning in the sky pls remember this nama and its significance
+
+## 108. षट्चक्रोपरि-संस्थिता - shatchakropari samsthitha - Aug 24
+
+She is residing above the six chakras.  I am tempted to write a longish note but given the Nirguna Svarupam is going to be dealt in next few verses will spare you the torture. 
+
+## 109. महासक्तिः - Mahashakti - Aug 24 
+
+The nama is to be split as Maha + Asaktih = Contemplation + Liking. Maha normally means great or superlative but here it used to mean 'prayer/meditation/contemplation' (it also is at times used to denote festivals)  and asaktiḥ means liking.  In a subsequent nama it will be shown that the divine mother is attained thru internal contemplation (antharmukha samaradhya) and we will cover the details when we reach there as to explain the concept we need to lay a bit more foundation.
+
+## 110. कुण्डलिनी - kundalini - Aug 25
 
 
 
-
-
-## 108. षट्चक्रोपरि-संस्थिता - shatchakropari samsthitha
+## 111. बिसतन्तु-तनीयसी - bisatantu taniyasi - Aug 28
