@@ -37,6 +37,6 @@ The nama is to be split as Maha + Asaktih = Contemplation + Liking. Maha normall
 
 ## 110. कुण्डलिनी - kundalini - Aug 25
 
-
+TBA
 
 ## 111. बिसतन्तु-तनीयसी - bisatantu taniyasi - Aug 28
