@@ -47,7 +47,7 @@ Again borrowing from the footnote to nama 66 from June 1 this remark by Ramana M
 
 If you see something as separate from you then it is the wrong cognition or wrong perception. He says if everything that you see or you know directly to be your own Self and is not separate from you in the sense that there is no “I” inside you perceiving something out there, he says then that is the correct understanding the correct experience of the world. He is not saying that it is not there but what he is saying is you have got a superimposition of a wrong idea. What you are seeing is an external thing which you take to be real but it essentially is the Self/Reality in which appears you and the world and so long as you imagine you are in that body looking at the world, you are going to suffer.  But he says once you get rid of the person inside who is looking outside at something then you find your own natural state (Sampatkari of LS). 
 
-The incorrect imagination is the conseuqnece of Kundalini/Maya. Lord Krishna captures it so beautifully in one phrase  in the Bhagavad Gita in sloka 13.02  - इदं शरीरं कौन्तेय - Idham sariram Kaunteya.  We wont expand on it here and will reserve it when we look at Maya/Avidya.
+The incorrect imagination is the consequence of Kundalini/Maya. Lord Krishna captures it so beautifully in one phrase  in the Bhagavad Gita in sloka 13.02  - इदं शरीरं कौन्तेय - Idham sariram Kaunteya and again in Gita sloka 7.13.  We wont expand on it here and will reserve it when we look at Maya/Avidya.
 
 Wishing all a blessed weekend.
 
