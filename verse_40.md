@@ -37,6 +37,20 @@ The nama is to be split as Maha + Asaktih = Contemplation + Liking. Maha normall
 
 ## 110. कुण्डलिनी - kundalini - Aug 25
 
-TBA
+I was hoping Adi Shankaracharya will give us an easy way out as this is nama 907 in Vishnu Sahasranamam but he has given a very cryptic note on Kundali which does not explain much.  So here starts my somewhat not so brief explanation. 
+
+The popular definition of Kundalini is the the serpent which is coiled in the Muladhara chakra  and it is broadly in reference to Maya (more on that later) and Sage Vāsiṣṭha says to Lord Rāma in Yoga Vashista - “Like the coiled body of a serpent when it sleeps, like a plantain flower it is exceedingly delicate within, hissing like an angry female serpent, causing fluctuations in the mind = how the vasanas of the svabhava manifest. This becomes purified only by the rays of jñāna or knowledge. Thus this Saktī rejoices in the name of puryaṣṭaka." 
+
+Now we have seen this word "puryastaka" before in nama 77-78 (June 14th)  when we saw the birth of Lord Ganesha. Without repeating it will summarise it by saying the entirity of Maya is referred to as Kundalini. Now what is "Maya" is probably the most complex topic and I hope to have the courage one day to take you thru Adi Shankaracharya's description of this from Viveka Chudamani but for now we will simply state it as the "veil of ignorance" which prevents us (the Atman) from seeing our real nature and projects this body/mind/world as Real - the avarana (covering) & vikshepa (projecting) power of Maya.  The story we quoted yesterday of the Sage who renounced wealth for Jnanam is worthwhile remembering here. He had thru adequate discrimination and vairagyam overcome the trappings of Kundalini/Maya and obtained Jnanam to break thru the shackles of Maya/Avidya.
+
+Again borrowing from the footnote to nama 66 from June 1 this remark by Ramana Maharshi explains this concept well 
+
+If you see something as separate from you then it is the wrong cognition or wrong perception. He says if everything that you see or you know directly to be your own Self and is not separate from you in the sense that there is no “I” inside you perceiving something out there, he says then that is the correct understanding the correct experience of the world. He is not saying that it is not there but what he is saying is you have got a superimposition of a wrong idea. What you are seeing is an external thing which you take to be real but it essentially is the Self/Reality in which appears you and the world and so long as you imagine you are in that body looking at the world, you are going to suffer.  But he says once you get rid of the person inside who is looking outside at something then you find your own natural state (Sampatkari of LS). 
+
+The incorrect imagination is the conseuqnece of Kundalini/Maya. Lord Krishna captures it so beautifully in one phrase  in the Bhagavad Gita in sloka 13.02  - इदं शरीरं कौन्तेय - Idham sariram Kaunteya.  We wont expand on it here and will reserve it when we look at Maya/Avidya.
+
+Wishing all a blessed weekend.
+
+
 
 ## 111. बिसतन्तु-तनीयसी - bisatantu taniyasi - Aug 28
