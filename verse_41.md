@@ -38,7 +38,7 @@ Swami P is very cute - he says how long are you going to keep saying Brahma Sath
 
 Normally this gets translated into Bhavana (thru the mind) + Gamya (attained) - "She is to be realized through the mind" or "She is to be attained by meditation".  Well that is before we had the opportunity to listen to Swami Sarvapriyanandaji's Q&A -  This Q&A was my baptism by fire (thanks to Alpana pointing me in the direction) and remember it is one of the first Q&A we heard where the whole concept of Vritti Vyapti, Phala Vyapti and the role of mind in Self/God realisation became crystal clear.  I will not try to rob you from that amazing experience of listening to the Q&A but will give a brief intro before you listen to it to help set the context. 
 
-The nama actually splits 2 ways 
+The nama actually splits 2 ways  
 
 1. Bhavana + Gamya = Realised/attained thru the Mind
 2. Bhavana (short a) + Agamya = Cannot be realised thru the Mind 
