@@ -34,9 +34,9 @@ Normally the 4th part of the slokas is translated as what i have quoted above in
 
 Swami P is very cute - he says how long are you going to keep saying Brahma Sathyam, Jagath Mithya & Jivo Brahmaiva na param ? When are going to collapse these 3 parts into 2 parts and say Aham Sathyam, Jagath Mithya ???
 
-## भावनागम्या  -  Bhavanagamya
+## 113. भावनागम्या  -  Bhavanagamya - Aug 30 
 
-Normally this gets translated into Bhavana (thru the mind) + Gamya (attained) - "She is to be realized through the mind" or "She is to be attained by meditation".  Well that is before we had the opportunity to listen to Swami Sarvapriyanandaji's Q&A -  This Q&A was my baptism by fire (thanks to Alpana pointing me in the direction) and remember it is one of the first Q&A we heard where the whole concept of Vritti Vyapti and Phala Vyapti and the role of mind in Self/God realisation became crystal clear.  I will not try to rob you from that amazing experience of listening to the Q&A but will give a brief intro before you listen to it to help set the context. 
+Normally this gets translated into Bhavana (thru the mind) + Gamya (attained) - "She is to be realized through the mind" or "She is to be attained by meditation".  Well that is before we had the opportunity to listen to Swami Sarvapriyanandaji's Q&A -  This Q&A was my baptism by fire (thanks to Alpana pointing me in the direction) and remember it is one of the first Q&A we heard where the whole concept of Vritti Vyapti, Phala Vyapti and the role of mind in Self/God realisation became crystal clear.  I will not try to rob you from that amazing experience of listening to the Q&A but will give a brief intro before you listen to it to help set the context. 
 
 The nama actually splits 2 ways 
 
@@ -45,18 +45,19 @@ The nama actually splits 2 ways
 
 And both these statements are made by the Upanishads. So which is right ?  Swami SPji beautifully explains this in this Q&A.  
 
-https://youtu.be/Bf45_kW2yI4?si=7o_-5QL9qkLGuHyj - Role of the Mind in Self/God Realisation - I am thrilled the Divine Mother helped me connect this nama to this SPji video.  Her ways of blessing is truly unique and astounding. 
+*https://youtu.be/Bf45_kW2yI4?si=7o_-5QL9qkLGuHyj - Role of the Mind in Self/God Realisation* 
+
+- I am thrilled the Divine Mother blessed us to connect this nama with SPji's video.  Her ways of blessing are truly unique and astounding. 
 
 If however you are somewhat suicidal and insist on reading a totally incomprehensible version of the same 35-40 minute Q&A then here is Swami P's explanation of the same in a nutshell.  This is explanation of one word that appears in sloka 10.07 of the Gita which later in 10.11 Lord clairfies that out of compassion he lights the lamp of knowledge in the mind of the sincere seeker.
 
 एतां विभूतिं योगं च मम यो वेत्ति तत्त्वत: | सोऽविकम्पेन योगेन युज्यते नात्र संशय: ||
 etāṁ vibhūtiṁ yogaṁ cha mama yo vetti tattvataḥ; so ’vikampena yogena yujyate nātra sanśhayaḥ
-
 meaning : One who knows truly this majesty and yoga of Mine (manifestation of My Being), he becomes imbued with unwavering Yoga. There is no doubt about this.
 
-And Swami P explains the same thing you will hear in SPji's video by expanding on the word सोऽविकम्पेन = sovikampena (which breaks down in sah + avikalpena = the unwavering) he says 
+And Swami P explains the same thing you will hear in SPji's video by expanding on the word सोऽविकम्पेन = sovikampena (which breaks down as sah + avikalpena = the unwavering) and Swami P says 
 
-So Bhagavān is located in akhaṇḍākāra vr̥ttiḥ means what? The vr̥tti serves as a reflecting medium, just as mind is a reflecting medium called RM, vr̥itti is also a reflecting medium called RM. And in the vr̥itti, Bhagavān is original-Consciousness, Bhagavān is called bimba-caitanyam, the bimba-caitanyam will be reflected in vr̥itti which is called pratibimba-caitanyam. So bimba-caitanya- Bhagavān will get reflected in the akhaṇḍākāra vr̥itti and that pratibimba-caitanyam is formed that is indicated by ātma-bhāvasthaḥ, finally Bhagavān is in the form of reflected Consciousness. And when vr̥tti is associated with reflected-Consciousness it becomes the lamp of knowledge. When the vr̥itti is associated with pratibimba- caitanyam it will become jñānam because vr̥itti by itself is jaḍam. Only when the reflection is formed vr̥itti plus pratibimba becomes jñānam, jñānam will destroy ajñānam.
+"So Bhagavān is located in akhaṇḍākāra vr̥ttiḥ means what? The vr̥tti serves as a reflecting medium, just as mind is a reflecting medium called RM, vr̥itti is also a reflecting medium called RM. And in the vr̥itti, Bhagavān is original-Consciousness, Bhagavān is called bimba-caitanyam, the bimba-caitanyam will be reflected in vr̥itti which is called pratibimba-caitanyam. So bimba-caitanya- Bhagavān will get reflected in the akhaṇḍākāra vr̥itti and that pratibimba-caitanyam is formed that is indicated by ātma-bhāvasthaḥ, finally Bhagavān is in the form of reflected Consciousness. And when vr̥tti is associated with reflected-Consciousness it becomes the lamp of knowledge. When the vr̥itti is associated with pratibimba- caitanyam it will become jñānam because vr̥itti by itself is jaḍam. Only when the reflection is formed vr̥itti plus pratibimba becomes jñānam, jñānam will destroy ajñānam"
 
 I purposely included the most complicated summary by Swami P on this topic so as to force you to listen to the SPji video instead.
 
