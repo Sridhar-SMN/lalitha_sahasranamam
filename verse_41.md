@@ -34,7 +34,7 @@ Normally the 4th part of the slokas is translated as what i have quoted above in
 
 Swami P is very cute - he says how long are you going to keep saying Brahma Sathyam, Jagath Mithya & Jivo Brahmaiva na param ? When are going to collapse these 3 parts into 2 parts and say Aham Sathyam, Jagath Mithya ???
 
-## 113. भावनागम्या - Bhavanagamya - Aug 30
+## 113. भावनागम्या - Bhavanagamya - Aug 30 & 31 
 
 (I normally remove the Youtube banner highlights but this is so vital that I included it make sure everyone knows its importance)
 
@@ -60,3 +60,17 @@ And Swami P explains the same thing you will hear in SPji's video by expanding o
 "So Bhagavān is located in akhaṇḍākāra vr̥ttiḥ means what? The vr̥tti serves as a reflecting medium, just as mind is a reflecting medium called RM, vr̥itti is also a reflecting medium called RM. And in the vr̥itti, Bhagavān is original-Consciousness, Bhagavān is called bimba-caitanyam, the bimba-caitanyam will be reflected in vr̥itti which is called pratibimba-caitanyam. So bimba-caitanya- Bhagavān will get reflected in the akhaṇḍākāra vr̥itti and that pratibimba-caitanyam is formed that is indicated by ātma-bhāvasthaḥ, finally Bhagavān is in the form of reflected Consciousness. And when vr̥tti is associated with reflected-Consciousness it becomes the lamp of knowledge. When the vr̥itti is associated with pratibimba- caitanyam it will become jñānam because vr̥itti by itself is jaḍam. Only when the reflection is formed vr̥itti plus pratibimba becomes jñānam, jñānam will destroy ajñānam"
 
 I purposely included the most complicated summary by Swami P on this topic so as to force you to listen to the SPji video instead.
+
+## 114. भवारण्य-कुठारिका - Bhavaranya kutarika - Sep 1
+
+This is a simple nama which explains the fruits of the knowledge achieved from the previous nama and the unique blessing of the divine mother
+
+She axes the forest of saṃsāra. Saṃsāra refers to transmigratory existence, which arises because of indulgence in worldly activities such as desire, attachment, love and affection causing bondage. Saṃsāra is compared to forest. Forest consists of many trees. If one wants to clean a forest he needs to axe each and every tree in the forest. It is not just enough to axe the trees. He has to remove the roots too; as otherwise, trees will grow from the roots again. Unless every aspect of saṃsāra is removed at the root level, the bondage is bound to rear its ugly head again causing transmigration.
+
+Lord Krishna says this in so many beautiful ways in the Gita and one of my favorites is Gita sloka 4.16 
+
+प्रवक्ष्यामि यज्ज्ञात्वा मोक्ष्यसेऽशुभात् - I will now tell you that by which you will be relieved of everything inauspicious. I am simply borrowing the the words and fans of Gita will be quick to point out that the context of this usage is quite different to this topic.  I am just borrowing the words for their poetic beauty and the confidence with which the Lord assures us that everything will be well - or as they sing in the 3 idiots movie - ALL IZZ WELL 
+
+Wishing all a blessed weekend !
+
+
