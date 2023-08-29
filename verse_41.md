@@ -24,5 +24,14 @@ A little bit of Sanskrit grammar to bring out the beauty of this nama : The word
 
 Lord Krishna ofcourse is jumping with joy to learn we have understood the nama as a "verb" and not a "noun" . In the whole Gita he keeps shouting from the roof top pleading with us to reach the "let me become You - understand our nature and His nature are exactly one and the same" and not waste scratching his legs till they are sore and start to bleed. Almost to make the point emphatically and conclusively in the Gita he says in sloka 7.17 that the baktha who knows "Me as him" (jnani baktha) is "my dearest". Of course this has left the other 3 catergories feeling like the wind has been taken out of their sails and so he assuages them by saying they are very good bakthas but this "Let me be you" chap is indeed and truly special. 
 
+If you remember we started this whole LS series with this post before Apr 5 and I quote below the invocation sloka that we chant before commencing chanting of the LS
+
+अरुणां करुणातरङ्गिताक्षीं धृतपाशाङ्कुशपुष्पबाणचापाम् । अणिमादिभिरावृतां मयुखैः अहमित्येव विभावये भवानीम्॥
+
+I meditate on the great Empress. She is red in color, and her eyes are full of compassion, and holds the noose, the goad, the bow and the flowery arrow in Her hands. She is surrounded on all sides by powers such as aNimA for rays and She is the Self within me
+
+Normally the 4th part of the slokas is translated as what i have quoted above in bold. But then we are disciples of Swami P and he always adds that extra gear. He says this line has to be interpreted not just as "She is the Self within me" but also as "I am none other than Bhavani" - here Bhavani is in reference to Para Prakriti / Brahman and not just the form of the Goddess. Invoking Atma Svarupam is a "must do" from Swami P's perspective to ensure the mind and intellect are perfectly aligned to the real goal like what Lord Krishna says in Gita sloka 7.17.
+
+
 
 
