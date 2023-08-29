@@ -4,7 +4,7 @@
 भद्रप्रिया भद्रमूर्तिर् भक्त-सौभाग्यदायिनी ॥ 
 
 Bhavani bhavanagamya bhavaranya kutarika
-Bhadrapriya bhadra-murtir bhakta-sowbhagyadayini
+Bhadrapriya bhadra-murtir bhakta-sowbhagyadayini 
 
 112. भवानी - Bhavani  
 113. भावनागम्या  -  Bhavanagamya
