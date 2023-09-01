@@ -73,7 +73,7 @@ Lord Krishna says this in so many beautiful ways in the Gita and one of my favor
 
 Wishing all a blessed weekend !
 
-## 115. भद्रप्रिया - Bhadrapriya - Sep 2
+## 115. भद्रप्रिया - Bhadrapriya - Sep 4
 
 She likes the act of benefaction. She is keen to shower Her blessings on Her devotees. Devotees are those who try to attain Her by any of the means discussed earlier namas. The act of benefaction is done by Her sacred feet (Actually it the nail as we saw in Nama 80 on July 31)
 
@@ -81,11 +81,19 @@ However if you want to be shaken out of your slumber and truly understand the li
 
 ### If God Exists, Why is there Suffering? : https://www.youtube.com/watch?v=80xmKPedkSQ
 
-## 116. भद्रमूर्तिर् - Bhadra-murtir - Sep 3
+## 116. भद्रमूर्तिर् - Bhadra-murtir - Sep 5
+
+I am keeping this light so that you have the time to focus on nama 113 and nama 115 which are crucial.
 
 She is an embodiment of auspiciousness (nāma 200). This is because she is also addressed as Śrī Śiva (nāma 998) which means auspiciousness. Brahman alone is auspicious. Therefore, She is addressed here as the Brahman. Viṣṇu Sahasranāma also says maṅgalānām ca maṅgalaṃ meaning the best amongst the auspices. Her very form is auspicious.
 
 ## 117. भक्त-सौभाग्यदायिनी - Bhakta sowbhagyadayini - Sep 4
+
+I am keeping this light so that you have the time to focus on nama 113 and nama 115 which are crucial.
+
+This para is a cut/paste : This nama gets translated as - She confers prosperity on Her devotees. There is a reference to saubhāgya aṣṭagam (eight things that gives prosperity) in Agni Purāṇa. They are sugarcane, peepul tree, sprouted jīra seeds, coriander, cow’s milk (and its modifications curd, butter and ghee), everything that are yellow in colour, flowers and salt. All these indicate auspiciousness and prosperity.
+
+However the real "Sowbhagyam" (prosperity) is when the Divine Mother comes in the form of a  Guru and gives us Atma Jnanam. That is the deeper meaning of this nama.
 
 
 
