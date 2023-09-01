@@ -73,4 +73,20 @@ Lord Krishna says this in so many beautiful ways in the Gita and one of my favor
 
 Wishing all a blessed weekend !
 
+## 115. भद्रप्रिया - Bhadrapriya - Sep 2
+
+She likes the act of benefaction. She is keen to shower Her blessings on Her devotees. Devotees are those who try to attain Her by any of the means discussed earlier namas. The act of benefaction is done by Her sacred feet (Actually it the nail as we saw in Nama 80 on July 31)
+
+However if you want to be shaken out of your slumber and truly understand the limitations of this "benevolent god" theory then do listen to this excerpt from SPji -  very deep and a serious eye opener - *caution it is also somewhat disturbing and can shake you if you are not mentally strong to receive the message*.  The concluding answer where SPji quotes Ramakrishna Parahamsa is so so profound and the way SPji brings it all together is just brilliant. 
+
+### If God Exists, Why is there Suffering? : https://www.youtube.com/watch?v=80xmKPedkSQ
+
+## 116. भद्रमूर्तिर् - Bhadra-murtir - Sep 3
+
+She is an embodiment of auspiciousness (nāma 200). This is because she is also addressed as Śrī Śiva (nāma 998) which means auspiciousness. Brahman alone is auspicious. Therefore, She is addressed here as the Brahman. Viṣṇu Sahasranāma also says maṅgalānām ca maṅgalaṃ meaning the best amongst the auspices. Her very form is auspicious.
+
+## 117. भक्त-सौभाग्यदायिनी - Bhakta sowbhagyadayini - Sep 4
+
+
+
 
