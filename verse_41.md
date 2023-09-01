@@ -87,7 +87,7 @@ I am keeping this light so that you have the time to focus on nama 113 and nama 
 
 She is an embodiment of auspiciousness (nāma 200). This is because she is also addressed as Śrī Śiva (nāma 998) which means auspiciousness. Brahman alone is auspicious. Therefore, She is addressed here as the Brahman. Viṣṇu Sahasranāma also says maṅgalānām ca maṅgalaṃ meaning the best amongst the auspices. Her very form is auspicious.
 
-## 117. भक्त-सौभाग्यदायिनी - Bhakta sowbhagyadayini - Sep 4
+## 117. भक्त-सौभाग्यदायिनी - Bhakta sowbhagyadayini - Sep 6
 
 I am keeping this light so that you have the time to focus on nama 113 and nama 115 which are crucial.
 
