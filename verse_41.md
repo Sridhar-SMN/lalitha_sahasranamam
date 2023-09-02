@@ -77,15 +77,15 @@ Wishing all a blessed weekend !
 
 She likes the act of benefaction. She is keen to shower Her blessings on Her devotees. Devotees are those who try to attain Her by any of the means discussed earlier namas. The act of benefaction is done by Her sacred feet (Actually it the nail as we saw in Nama 80 on July 31)
 
-However if you want to be shaken out of your slumber and truly understand the limitations of this "benevolent god" theory then do listen to this excerpt from SPji -  very deep and a serious eye opener - *caution it is also somewhat disturbing and can shake you if you are not mentally strong to receive the message*.  The concluding answer where SPji quotes Ramakrishna Parahamsa is so so profound and the way SPji brings it all together is just brilliant. 
+SPji in this video explains the deeper aspects of  "benevolent god" theory  -  very deep and a serious eye opener . I would also like to caution that it is also somewhat disturbing and can shake the unprepared.  The concluding answer where SPji quotes Sri Ramakrishna Paramahamsa (who was deeply rooted in the bakthi marg) is so profound and the way SPji brings it all together is just brilliant. 
 
-### If God Exists, Why is there Suffering? : https://www.youtube.com/watch?v=80xmKPedkSQ
+### If God Exists, Why is there Suffering? : https://www.youtube.com/watch?v=80xmKPedkSQ 
 
 ## 116. भद्रमूर्तिर् - Bhadra-murtir - Sep 5
 
 I am keeping this light so that you have the time to focus on nama 113 and nama 115 which are crucial.
 
-She is an embodiment of auspiciousness (nāma 200). This is because she is also addressed as Śrī Śiva (nāma 998) which means auspiciousness. Brahman alone is auspicious. Therefore, She is addressed here as the Brahman. Viṣṇu Sahasranāma also says maṅgalānām ca maṅgalaṃ meaning the best amongst the auspices. Her very form is auspicious.
+She is an embodiment of auspiciousness (nāma 200). This is because she is also addressed as Śrī Śiva (nāma 998) which means auspiciousness. Brahman alone is auspicious. Therefore, She is addressed here as the Brahman. Viṣṇu Sahasranāma also says maṅgalānām ca maṅgalaṃ meaning the best amongst the auspices. Her very form and formless representation is auspicious. In fact in the Bhagavad Gita one of the reasons used by Adi Shankaracharya to establish that Ignorance/Avidya cannot be located in Brahman is by showing Ignorance is a "dosha" (defect) and anything with defect is subject to modification and as such cannot be Brahman which is Nirvikara (unchanging). He uses this and related logic to prove that ignorance which is the cause of samsara can only be located in the mind and as such the Jivatma is blemishless and the exact same as Paramtma shutting down an opponent who erroneously keeps claiming the ignorance lies with the Jivatma so Tat Tvam Asi is an incorrect teaching (This is explaining Gita sloka 13.02)
 
 ## 117. भक्त-सौभाग्यदायिनी - Bhakta sowbhagyadayini - Sep 6
 
@@ -93,8 +93,8 @@ I am keeping this light so that you have the time to focus on nama 113 and nama 
 
 This para is a cut/paste : This nama gets translated as - She confers prosperity on Her devotees. There is a reference to saubhāgya aṣṭagam (eight things that gives prosperity) in Agni Purāṇa. They are sugarcane, peepul tree, sprouted jīra seeds, coriander, cow’s milk (and its modifications curd, butter and ghee), everything that are yellow in colour, flowers and salt. All these indicate auspiciousness and prosperity.
 
-However the real "Sowbhagyam" (prosperity) is when the Divine Mother comes in the form of a  Guru and gives us Atma Jnanam. That is the deeper meaning of this nama.
+However the real "Sowbhagyam" (prosperity) and the deeper meaning of this nama is when the Divine Mother comes in the form of a  Guru and gives us Atma Jnanam.  Saint Arunagirinathar captures this beautifully in crest jewel - the Kandar Anubhuthi (The Realisation delivered by Lord Skandha) and the concluding line of the 51 verses of that epic composition is 
 
-
+### குருவாய்  வருவாய்  அருள்வாய்  குகனே (Guruvaai varuvaai arulvaai guhane) = O Lord Guha, Who comes as the Guru and bestows thy grace !
 
 
