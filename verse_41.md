@@ -77,9 +77,16 @@ Wishing all a blessed weekend !
 
 She likes the act of benefaction. She is keen to shower Her blessings on Her devotees. Devotees are those who try to attain Her by any of the means discussed earlier namas. The act of benefaction is done by Her sacred feet (Actually it the nail as we saw in Nama 80 on July 31)
 
-SPji in this video explains the deeper aspects of  "benevolent god" theory  -  very deep and a serious eye opener . I would also like to caution that it is also somewhat disturbing and can shake the unprepared.  The concluding answer where SPji quotes Sri Ramakrishna Paramahamsa (who was deeply rooted in the bakthi marg) is so profound and the way SPji brings it all together is just brilliant. 
+This is best brought out in the famous verse from the Gita - 9.22 
 
-### If God Exists, Why is there Suffering? : https://www.youtube.com/watch?v=80xmKPedkSQ 
+अनन्याश्चिन्तयन्तो मां ये जना: पर्युपासते | तेषां नित्याभियुक्तानां योगक्षेमं वहाम्यहम् || 
+ananyāśh chintayanto māṁ ye janāḥ paryupāsate; teṣhāṁ nityābhiyuktānāṁ yoga-kṣhemaṁ vahāmyaham
+
+This is both a very popular sloka and therefore by defition also the most misterpreted as it is read/explained without proper context and not entirely realising that the Lord is giving this assurance to Nishkama (selfless) Jigyasu baktha who has dedicated his life's purpose in the pursuit of realising the ultimate truth in God/Brahman.  Indeed, they desire nothing for themselves, in life or in death. They have taken refuge only in the Lord. Therefore the Lord Himself arranges to procure what they do not have (yogam) and protect what they have got (shemam). Of course Shankaracharya has a super strict interpretation of this Gita sloka but for now we will stick with the less stringent version.
+
+It is my duty to point out an important albeit somewhat disturbing point in this context. SPji in this video explains the deeper aspects of  "benevolent god" theory  -  very deep and a serious eye opener . I would also like to caution and repeat that it is also somewhat disturbing and can shake the unprepared.  The concluding answer where SPji quotes Sri Ramakrishna Paramahamsa (who was deeply rooted in the bakthi marg) is so profound and the way SPji brings it all together is just brilliant. All of us in this group are blessed with decent socio-economic settings but we know for a fact that is not the case with the majority in the world. So SPji asks and answers the question - "why if God Exists, there is this much suffering" ? 
+
+### If God Exists, Why is there this much suffering in this world? : https://www.youtube.com/watch?v=80xmKPedkSQ 
 
 ## 116. भद्रमूर्तिर् - Bhadra-murtir - Sep 5
 
