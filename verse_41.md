@@ -112,7 +112,7 @@ Lord Krishna also repeats the role & importance of a well read and self realised
 तद्विद्धि प्रणिपातेन परिप्रश्नेन सेवया | उपदेक्ष्यन्ति ते ज्ञानं ज्ञानिनस्तत्त्वदर्शिन: || 
 Learn the Truth by approaching a Guru (srothriya & brahma nishta). Inquire from him with reverence and render service unto him. Such an enlightened Guru can impart knowledge unto you because he has subjective experience of the Truth. SPji said it beautifully during his SG trip recently - when asked a question does your answer come from more words or does it come from silence (subjective experience) ? These "real" gurus have this amazing ability to reveal the truth. 
 
-In all honesty it is complete waste of time with Grihastha fake 'gurus' like me. it is ok for one round of learning the basics but sooner or later one has to seek a real guru.  I see many in SG and India bouncing around in Grihastha circles listening to sincere but half baked versions. sooner or later one has to seek a real guru. 
+In all honesty it is complete waste of time with Grihastha fake 'gurus' like me. It is ok for one round of learning the basics but sooner or later one has to seek a real guru.  I see many in SG and India bouncing around in Grihastha circles listening to sincere but half baked versions and strangely refusing to move out of the trap of comfort with people we know. Sooner or later one has to seek a real guru or for sincere effort and intent a real guru will seek you. Not suggesting that if you are yet to find a real guru your sadhana is incomplete or flawed but the point I am trying to get across is non-gurukulam settings (real or virtual) are sub-optimal.
 
 
 
