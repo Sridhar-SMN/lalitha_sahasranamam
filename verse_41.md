@@ -98,7 +98,7 @@ Her very form and formless representation is auspicious. In fact in the Bhagavad
 
 ## 117. भक्त-सौभाग्यदायिनी - Bhakta sowbhagyadayini - Sep 6
 
-I am keeping this light so that you have the time to focus on nama 113 and nama 115 which are crucial.
+I am keeping this realtively light so that you have the time to focus on nama 113 and nama 115 which are crucial.
 
 This para is a cut/paste : This nama gets translated as - She confers prosperity on Her devotees. There is a reference to saubhāgya aṣṭagam (eight things that gives prosperity) in Agni Purāṇa. They are sugarcane, peepul tree, sprouted jīra seeds, coriander, cow’s milk (and its modifications curd, butter and ghee), everything that are yellow in colour, flowers and salt. All these indicate auspiciousness and prosperity. Young Nachiketa must be rolling his eyes in dismay if we stop explaining this nama just with this material blessing. As students of the LS, Gita and Upanishads we are expected to go from seeking the limited to seeking the unlimited within. 
 
@@ -110,7 +110,9 @@ The real "Sowbhagyam" (prosperity) and the deeper meaning of this nama is when t
 Lord Krishna also repeats the role & importance of a well read and self realised Guru in the Gita sloka 4.34 who will help reveal this Guhan to us.
 
 तद्विद्धि प्रणिपातेन परिप्रश्नेन सेवया | उपदेक्ष्यन्ति ते ज्ञानं ज्ञानिनस्तत्त्वदर्शिन: || 
-Learn the Truth by approaching a Guru (srothriya & brahma nishta). Inquire from him with reverence and render service unto him. Such an enlightened Guru can impart knowledge unto you because he has subjective knowledge of the Truth.
+Learn the Truth by approaching a Guru (srothriya & brahma nishta). Inquire from him with reverence and render service unto him. Such an enlightened Guru can impart knowledge unto you because he has subjective experience of the Truth. SPji said it beautifully during his SG trip recently - when asked a question does your answer come from more words or does it come from silence (subjective experience) ? These "real" gurus have this amazing ability to reveal the truth. 
+
+In all honesty it is complete waste of time with Grihastha fake 'gurus' like me. it is ok for one round of learning the basics but sooner or later one has to seek a real guru.  I see many in SG and India bouncing around in Grihastha circles listening to sincere but half baked versions. sooner or later one has to seek a real guru. 
 
 
 
