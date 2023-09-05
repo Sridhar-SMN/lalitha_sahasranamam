@@ -88,20 +88,33 @@ It is also my duty to point out an important albeit somewhat disturbing point in
 
 ### If God Exists, Why is there this much suffering in this world? : https://www.youtube.com/watch?v=80xmKPedkSQ 
 
-## 116. भद्रमूर्तिर् - Bhadra-murtir - Sep 5
+## 116. भद्रमूर्तिर् - Bhadramurtir - Sep 5
 
-I am keeping this light so that you have the time to focus on nama 113 and nama 115 which are crucial.
+I am keeping this light so that you have the time to focus on nama 113 and nama 115 which are crucial. 
 
-She is an embodiment of auspiciousness (nāma 200). This is because she is also addressed as Śrī Śiva (nāma 998) which means auspiciousness. Brahman alone is auspicious. Therefore, She is addressed here as the Brahman. Viṣṇu Sahasranāma also says maṅgalānām ca maṅgalaṃ meaning the best amongst the auspices. Her very form and formless representation is auspicious. In fact in the Bhagavad Gita one of the reasons used by Adi Shankaracharya to establish that Ignorance/Avidya cannot be located in Brahman is by showing Ignorance is a "dosha" (defect) and anything with defect is subject to modification and as such cannot be Brahman which is Nirvikara (unchanging). He uses this and related logic to prove that ignorance which is the cause of samsara can only be located in the mind and as such the Jivatma is blemishless and the exact same as Paramtma and using this logic going ahead shutting down an opponent who erroneously keeps claiming the ignorance lies with the Jivatma so Tat Tvam Asi is an incorrect teaching. Can you believe that a majority of the spiritual seekers in Sanatana Dharma actually dont believe in Tat Tvam Asi or Aham Brahmansmi even though it the same thing said in every scripture ad nauseum. 
+The nama says - She is an embodiment of auspiciousness. This is because she is also addressed as Śrī Śiva (nāma 53 we saw on May 18) which means auspiciousness. Brahman alone is auspicious. Therefore, She is addressed here as the Brahman. Viṣṇu Sahasranāma also says in reference to the higher nature of Vishnu - maṅgalānām ca maṅgalaṃ meaning the most auspicious. 
+
+Her very form and formless representation is auspicious. In fact in the Bhagavad Gita sloka 13.02 (which is the blockbuster Mahavakyam sloka of the Gita)  one of the reasons used by Adi Shankaracharya to establish that Ignorance/Avidya of our own true nature cannot be located in the Atman/Brahman is by showing Ignorance is a "dosha" (defect) and anything with defect is subject to modification and as such cannot be located in Atman/Brahman which is Nirvikara (unchanging). He uses this logic to prove that ignorance, as an attribute, which is the cause of samsara can only be located in  the Mind and as such the Jivatma (seemingly enclosed Consciousness) is blemishless, also is the exact same as Paramtma and most crucially using this logic shutting down an opponent who erroneously claims  the ignorance lies with the Jivatma and even more shockingly falsely  by extension claims  Tat Tvam Asi is an incorrect teaching.
 
 ## 117. भक्त-सौभाग्यदायिनी - Bhakta sowbhagyadayini - Sep 6
 
 I am keeping this light so that you have the time to focus on nama 113 and nama 115 which are crucial.
 
-This para is a cut/paste : This nama gets translated as - She confers prosperity on Her devotees. There is a reference to saubhāgya aṣṭagam (eight things that gives prosperity) in Agni Purāṇa. They are sugarcane, peepul tree, sprouted jīra seeds, coriander, cow’s milk (and its modifications curd, butter and ghee), everything that are yellow in colour, flowers and salt. All these indicate auspiciousness and prosperity.
+This para is a cut/paste : This nama gets translated as - She confers prosperity on Her devotees. There is a reference to saubhāgya aṣṭagam (eight things that gives prosperity) in Agni Purāṇa. They are sugarcane, peepul tree, sprouted jīra seeds, coriander, cow’s milk (and its modifications curd, butter and ghee), everything that are yellow in colour, flowers and salt. All these indicate auspiciousness and prosperity. Young Nachiketa must be rolling his eyes in dismay if we stop explaining this nama just with this material blessing. As students of the LS, Gita and Upanishads we are expected to go from seeking the limited to seeking the unlimited within. 
 
-However the real "Sowbhagyam" (prosperity) and the deeper meaning of this nama is when the Divine Mother comes in the form of a  Guru and gives us Atma Jnanam.  Saint Arunagirinathar captures this beautifully in crest jewel - the Kandar Anubhuthi (The Realisation delivered by Lord Skandha) and the concluding line of the 51 verses of that epic composition is 
+The real "Sowbhagyam" (prosperity) and the deeper meaning of this nama is when the Divine Mother comes in the form of a  Guru and gives us Atma Jnanam.  Saint Arunagirinathar captures this beautifully in his crest jewel - the Kandar Anubhuthi (The Realisation delivered by Lord Skandha) and the concluding line of the 51 verses of that epic composition is 
 
 ### குருவாய்  வருவாய்  அருள்வாய்  குகனே (Guruvaai varuvaai arulvaai guhane) = O Lord Guha, Who comes as the Guru and bestows thy grace !
+(and we saw the meaning of the word "guha" on Aug 16 along with the footnote to nama 96-98 in verse 37 and the related sloka from the Mundaka Upanishad)
+
+Lord Krishna also repeats the role & importance of a well read and self realised Guru in the Gita sloka 4.34 who will help reveal this Guhan to us.
+
+तद्विद्धि प्रणिपातेन परिप्रश्नेन सेवया | उपदेक्ष्यन्ति ते ज्ञानं ज्ञानिनस्तत्त्वदर्शिन: || 
+Learn the Truth by approaching a Guru (srothriya & brahma nishta). Inquire from him with reverence and render service unto him. Such an enlightened Guru can impart knowledge unto you because he has subjective knowledge of the Truth.
+
+
+
+
+
 
 
