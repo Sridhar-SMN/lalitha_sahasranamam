@@ -100,23 +100,18 @@ Her very form and formless representation is auspicious. In fact in the Bhagavad
 
 I am keeping this realtively light so that you have the time to focus on nama 113 and nama 115 which are crucial.
 
-This para is a cut/paste : This nama gets translated as - She confers prosperity on Her devotees. There is a reference to saubhāgya aṣṭagam (eight things that gives prosperity) in Agni Purāṇa. They are sugarcane, peepul tree, sprouted jīra seeds, coriander, cow’s milk (and its modifications curd, butter and ghee), everything that are yellow in colour, flowers and salt. All these indicate auspiciousness and prosperity. Young Nachiketa must be rolling his eyes in dismay if we stop explaining this nama just with this material blessing. As students of the LS, Gita and Upanishads we are expected to go from seeking the limited to seeking the unlimited within. 
+This para is a cut/paste : This nama gets translated as - She confers prosperity on Her devotees. There is a reference to saubhāgya aṣṭagam (eight things that gives prosperity) in Agni Purāṇa. They are sugarcane, peepul tree, sprouted jīra seeds, coriander, cow’s milk (and its modifications curd, butter and ghee), everything that are yellow in colour, flowers and salt. All these indicate auspiciousness and prosperity. 
 
-The real "Sowbhagyam" (prosperity) and the deeper meaning of this nama is when the Divine Mother comes in the form of a  Guru and gives us Atma Jnanam.  Saint Arunagirinathar captures this beautifully in his crest jewel - the Kandar Anubhuthi (The Realisation delivered by Lord Skandha) and the concluding line of the 51 verses of that epic composition is 
+Young Nachiketa must be rolling his eyes in dismay if we stop explaining this nama just with this material blessing. As students of the LS, Gita and Upanishads we are expected to go from seeking the limited to seeking the unlimited within.
 
-### குருவாய்  வருவாய்  அருள்வாய்  குகனே (Guruvaai varuvaai arulvaai guhane) = O Lord Guha, Who comes as the Guru and bestows thy grace !
+The real "Sowbhagyam" (prosperity) and the deeper meaning of this nama is when the Divine Mother comes in the form of a Guru and gives us Atma Jnanam. Saint Arunagirinathar captures this beautifully in his crest jewel - the Kandar Anubhuthi (The Realisation delivered by Lord Skandha) and the concluding line of the 51 verses of that epic composition is
+
+குருவாய் வருவாய் அருள்வாய் குகனே (Guruvaai varuvaai arulvaai guhane) = O Lord Guha, Who comes as the Guru and bestows thy grace !
+
 (and we saw the meaning of the word "guha" on Aug 16 along with the footnote to nama 96-98 in verse 37 and the related sloka from the Mundaka Upanishad)
 
 Lord Krishna also repeats the role & importance of a well read and self realised Guru in the Gita sloka 4.34 who will help reveal this Guhan to us.
 
-तद्विद्धि प्रणिपातेन परिप्रश्नेन सेवया | उपदेक्ष्यन्ति ते ज्ञानं ज्ञानिनस्तत्त्वदर्शिन: || 
-Learn the Truth by approaching a Guru (srothriya & brahma nishta). Inquire from him with reverence and render service unto him. Such an enlightened Guru can impart knowledge unto you because he has subjective experience of the Truth. SPji said it beautifully during his SG trip recently - when asked a question does your answer come from more words or does it come from silence (subjective experience) ? These "real" gurus have this amazing ability to reveal the truth. 
+तद्विद्धि प्रणिपातेन परिप्रश्नेन सेवया | उपदेक्ष्यन्ति ते ज्ञानं ज्ञानिनस्तत्त्वदर्शिन: || Learn the Truth by approaching a Guru (srothriya & brahma nishta). Inquire from him with reverence and render service unto him. Such an enlightened Guru can impart knowledge unto you because he has subjective experience of the Truth.
 
-In all honesty it is complete waste of time with Grihastha fake 'gurus' like me. It is ok for one round of learning the basics but sooner or later one has to seek a real guru.  I see many in SG and India bouncing around in Grihastha circles listening to sincere but half baked versions and strangely refusing to move out of the trap of comfort with people we know. Sooner or later one has to seek a real guru or for sincere effort and intent a real guru will seek you. Not suggesting that if you are yet to find a real guru your sadhana is incomplete or flawed but the point I am trying to get across is non-gurukulam settings (real or virtual) are sub-optimal.
-
-
-
-
-
-
-
+Swami P’s quote posted below explains this nama succinctly in sink with the Gita and Kandar Anubhuthi
