@@ -1,4 +1,4 @@
-# Verse 42 - namas 119-125 
+# Verse 42 - namas 118-125 
 
 भक्तिप्रिया भक्तिगम्या भक्तिवश्या भयापहा ।
 शाम्भवी शारदाराध्या शर्वाणी शर्मदायिनी ॥ 
@@ -17,12 +17,14 @@ Shambhavi sharadardhya sharvani sharmadayini ॥
 
 ## 118. भक्तिप्रिया - Bhakti-priya - Sep 7
 
-She is fond of devotion. Śivānanda Laharī  describes devotion as -  “The way needle seeks magnet, the way creeper seeks tree, the way river unites with ocean and the way the mind seeks the lotus feet of Śiva are called devotion”. Sage Nārada said ‘Devotion is beyond three guṇas – rajas, tamas and sattva. It is beyond desire. It grows every second. It remains connected with the God/Brahman. It is subtle and realized out of experience. Once realized, he always remains with That.
+She is fond of devotion. Śivānanda Laharī describes devotion as - “The way needle seeks magnet, the way creeper seeks tree, the way river unites with ocean and the way the mind seeks the lotus feet of Śiva are called devotion”. Sage Nārada said ‘Devotion is beyond three guṇas – rajas, tamas and sattva. It is beyond desire. It grows every second. It remains connected with the God/Brahman. It is subtle and realized out of experience. Once realized, he always remains with That.
 
-Śrī Rāmakṛṣṇa Paramahamsa compares devotion to the flood that flows powerfully into the ocean in spite of the dams built to control the floods. Our mind, he continues, is not flowing but stagnant like a pond. Our mind gets stagnated towards devotion, which has to grow every second. Adi Shankaracharya in Viveka Chudamani (verse 31) says that “amongst things conducive to liberation, devotion alone holds the supreme place. The seeking after one’s real nature is designated as devotion. 
+Śrī Rāmakṛṣṇa Paramahamsa compares devotion to the flood that flows powerfully into the ocean in spite of the dams built to control the floods. Our mind, he continues, is not flowing but stagnant like a pond. Our mind gets stagnated towards devotion, which has to grow every second. Adi Shankaracharya in Viveka Chudamani (verse 31) says that “amongst things conducive to liberation, devotion alone holds the supreme place. The seeking after one’s real nature is designated as devotion.
 
-The point driven home in this nāma is that nothing prevents a true devotee in realizing Her irrespective of the hurdles. She is delighted with such devotion and such devotees. Devotees are those who worship Her through mind to seek Her within.
-    
+There are so many beautiful references in the Gita in chap 7,9,12 etc which glorify the beauty of Saguna Bakthi. In fact in Gita 3.30 the Lord actively pushes us to have total surrender of efforts and outcome to be delivered at His feet and then proceed with our daily lives. 
+
+The point driven home in this nāma is that nothing prevents a true devotee in realizing Her irrespective of the hurdles. She is delighted with such devotion and such devotees. Devotees are those who worship Her through mind and ultimately put efforts to seek Her from within.   
+ 
 ## 119. भक्तिगम्या - Bhakti-gamya - Sep 8 
 
 She can be attained only by devotion. Since She likes pure devotion in terms of the previous nama, She can be attained by such devotion only. Of course no can explain this better than Lord Krishna in the Gita and he brings this out in so many slokas. I would like to quote 9.34 and its meaning and then 18.55 below with the link
@@ -38,7 +40,7 @@ https://www.gitasupersite.iitk.ac.in/srimad?language=dv&field_chapter_value=18&f
 
 Extract from a brilliant speech by Swami P explaining the word "Saranagathi" - The very word Shāstram means, that which protects the people. In-fact, the word Sharanam in the Sharanāgati has got the same meaning as the word Shāstram. Sharanam means protector and Shāstram also means protector. Sharanam is derived from the root ‘shru’. Shrunāti means to destroy the problem. Therefore, Sharanam means the protector, remover of problems. Shāstram also means protector - shāsanāt trāyatē iti shāstram. Therefore, according to the tradition, Sharanāgati means Shāstrāgatihi. So, have faith in God means have faith in the teachings of God. When we say teachings of the Lord, it is not the miracle stories. Miracle stories of the devotees are not the real part of the scriptures. They are only frills, peripherals of the scriptures. They are like the appetizers. The real part of the scriptures is the teaching regarding how to solve problems, what is human problem, what is the world, how does the world create problem etc. This teaching of the human being, the world, the problems and the solutions is the central Shāstram. Surrender to the Shāstram, receive the teaching and find the solution for your own problem because Bhagawān has provided solutions to all the problems.
 
-Swami P says it best - There is no distinct branch called  Bakthi Yoga and then adds Karma Yoga (KY)  + Jnana Yoga (JY)  = Bakthi Yoga. In KY we are dependent on the Lord and in JY we are dependent on the Lord's teachings. Why so many people run away from Jnana Yoga claiming it to be merely intellectual remains a mystery that I can never understand. To my dismay I have seen this repeated by Gita facilitators who have been teaching for 10+ years and what is real cause for concern is they are also undertake the responsibility to guide children armed with half baked knowledge.  Lord Krishna is right - we cant be bouncing around in Grihastha circles but hope and pray the Lord sends our way a real Guru as described in Gita sloka 4.34.
+Swami P says it best - There is no distinct branch called  Bakthi Yoga and then adds Karma Yoga (KY)  + Jnana Yoga (JY)  = Bakthi Yoga. In KY we are dependent on the Lord and in JY we are dependent on the Lord's teachings. Why so many people run away from Jnana Yoga claiming it to be optional and merely intellectual remains a mystery that one can never understand. 
 
 Wishing all a blessed weekend !
 
