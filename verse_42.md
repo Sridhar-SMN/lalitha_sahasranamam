@@ -44,6 +44,23 @@ Swami P says it best - There is no distinct branch called  Bakthi Yoga and then 
 
 Wishing all a blessed weekend !
 
+## 120. भक्तिवश्या - Bhakti-vashya
+
+She is controlled by devotion or She is attracted by devotion. vashya means attraction or keeping under control. There are some beautiful stories from our Puranas on devotion and absolute surrender (as a side note the surrender of Prahalada, Vibhshana, Panchali, Ahalya, Gajendra & Dhruva etc while glorified in our puranas are still considered artha and artharthi bakthi only. There is a beautiful prayer on Lord Vishnu which lists these bakthas and names Lord Vishnu as "Artharthrayana").  I am sure you are all seasoned veterans on bakthi stories and I will try not to torture but instead will give some references from the Gita which might jog your memory on this topic.
+
+Lord Krishna says in Gita 9.30 -  “Even if the vilest sinner worships me with exclusive devotion, he should be accounted as a saint. He is positive in his belief that there is nothing like devoted worship of God,” and Lord proceeds to say in the next verse “that my devotee never perishes = is stuck in this never ending rebirth cycle”.  But as a staunch advaitin the sloka from the Gita that deeply emphasises the importance of Bakthi towards Ishwara (Saguna Brahman) is sloka 13.19 (701 count) 
+
+इति क्षेत्रं तथा ज्ञानं ज्ञेयं चोक्तं समासत: | मद्भक्त एतद्विज्ञाय मद्भावायोपपद्यते ||
+iti kṣhetraṁ tathā jñānaṁ jñeyaṁ choktaṁ samāsataḥ madh-bhakta etad vijñāya mad-bhāvāyopapadyate
+
+I have thus revealed to you the nature of the field (body/mind/world), the meaning of knowledge (Jivatma), and the object of knowledge (Paramatma) & the oneness of Jivatma & Paramatma. Only My devotees can understand this in reality, and by doing so, they attain My divine nature.
+
+The key word to highlight in this sloka (for Gita fans this needs to be linked back to 10.09-10.11) is मद्भक्त - madh baktha (not 'Mad' Baktha as is popularly misunderstood). Here the Baktha is one who sees the entire creation as nothing but the Divine Lord himself and is able to convert Vishwa (world) darshan into Vishwaroopa Darshan.  It is only a cognitive change of seeing God in and as everything. And Lord says it is such baktha the ultimate knowledge will be revealed and thereby enabling him/her to understand the Jivatma/Parmatma oneness in this very birth. 
+
+As Swami P says to quell meaningless debates on Bakthi v. Jnana  - Without Bakthi, Jnana is impossible and without Jnana, Bakthi is incomplete. 
+
+
+
 
 
 
