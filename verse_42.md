@@ -44,7 +44,7 @@ Swami P says it best - There is no distinct branch called  Bakthi Yoga and then 
 
 Wishing all a blessed weekend !
 
-## 120. भक्तिवश्या - Bhakti-vashya
+## 120. भक्तिवश्या - Bhakti-vashya - Sep 11
 
 She is controlled by devotion or She is attracted by devotion. vashya means attraction or keeping under control. There are some beautiful stories from our Puranas on devotion and absolute surrender .I am sure you are all seasoned veterans on bakthi stories and I will try not to torture but instead will give some references from the Gita which might jog your memory on this topic. As an aside note the surrender of Prahalada, Vibhshana, Panchali, Ahalya, Gajendra & Dhruva etc while glorified in our puranas are still considered artha and artharthi bakthi only - lower 2 of the 4 levels of Bakthi. There is a beautiful prayer on Lord Vishnu which lists these bakthas and names Lord Vishnu as "Artharthrayana parayaNa sa Bhagavan".  And fans of Gajendra Moksham (GM) stotram may be intrigued to note as per the full story Gajendra did not get Moksh at the end of that story.   He was reborn later in human form and then subsequently attained Moksh. GM happens to be one of my favorite hymns, so if you would like to discuss pls feel free to ping me separately) 
 
@@ -60,5 +60,26 @@ To quell meaningless debates on Bakthi v. Jnana  and which is superior - Swami P
 
 ## Without Bakthi, Jnana is impossible and without Jnana, Bakthi is incomplete
 
+## 121. भयापहा - Bhaya-paha - Sep 12 & 13 
 
+I was really hoping to plagiarise big time from Adi Shankaracharya's commentary on Vishnu Sahasranamam as nama # 935 of VS is also Bhaya-Paha but much to my disappointment Shankarar has written a brief but a very very deep note.
 
+Explaining this Adi Shankaracharya writes - Bhaya-paha = The destroyer of fear and then  he defines fear as Samsara. 
+
+So that begs the question as to what is the meaning of Samsara and our scriptures have 2 definitions
+
+a) Sam (Continuous & directionless) + Sara (travel.  this is from the root "Sru" to travel and Sara is the abstract noun) - Here the definition points to the continous cycle of birth and death and being stuck in this punarapi jananam  & punarapi maranam unending cycle. But this definition is useless for those who dont believe in rebirth. 
+b) So Adi Shankaracharya in his Gita Bashyam gives another deeper meaning - he says samsara is the continuous occurence of sukham (joy) and dukham (sorrow) and in no particular expected pattern.
+
+I will give 2 references and conclude the explanation of the nama 
+
+- When Janaka obtained Self-Realisation what do you think his Guru said to him ? Normally you would expect him to have said - "Janaka, you are self realised, you are shining like the atman etc " .  No there was no such grand proclamation - instead the Guru said - "From today you have become fearless Janaka"
+
+- And what is probably considered the most important sloka of the Gita, Lord Krishna in 18.66 says
+
+सर्वधर्मान्परित्यज्य मामेकं शरणं व्रज | अहं त्वां सर्वपापेभ्यो मोक्षयिष्यामि मा शुच: || 
+sarva-dharmān parityajya mām ekaṁ śharaṇaṁ vraja ; ahaṁ tvāṁ sarva-pāpebhyo mokṣhayiṣhyāmi mā śhuchaḥ
+
+Adi Sankaracharya's commentary on this is an absolute epic and he draws out the profound teaching of "Tat Tvam Asi" from this sloka. But what we are interested for the purposes of this name are the last 2 words - मा शुच: (mā śhuchaḥ) = do not fear . The Lord after giving out the grand knowledge in the final teaching verse of the Gita pauses and says "do not fear" 
+
+Exactly in the same way the Divine mother removes us from the Samsara by giving us the knowledged of the Atman (by arranging for the right guru to come and guide us) removing all our fear. 
