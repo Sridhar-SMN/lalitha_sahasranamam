@@ -60,16 +60,13 @@ To quell meaningless debates on Bakthi v. Jnana  and which is superior - Swami P
 
 ## Without Bakthi, Jnana is impossible and without Jnana, Bakthi is incomplete
 
-## 121. भयापहा - Bhaya-paha - Sep 12 & 13 
 
-I was really hoping to plagiarise big time from Adi Shankaracharya's commentary on Vishnu Sahasranamam as nama # 935 of VS is also Bhaya-Paha but much to my disappointment Shankarar has written a brief but a very very deep note.
+## 121. भयापहा - Bhaya-paha - Sep 12 
 
-Explaining this Adi Shankaracharya writes - Bhaya-paha = The destroyer of fear and then  he defines fear as Samsara. 
+I was really hoping to plagiarise big time from Adi Shankaracharya's commentary on Vishnu Sahasranamam as nama # 935 of VS is also Bhaya-Paha but much to my disappointment Shankarar has written a brief but a very very deep note. Explaining this Adi Shankaracharya writes - Bhaya-paha = The destroyer of fear.  In another nama of VS he calls Samsara as fear.  So that begs the question as to what is the meaning of Samsara and our scriptures have 2 definitions
 
-So that begs the question as to what is the meaning of Samsara and our scriptures have 2 definitions
-
-a) Sam (Continuous & directionless) + Sara (travel.  this is from the root "Sru" to travel and Sara is the abstract noun) - Here the definition points to the continous cycle of birth and death and being stuck in this punarapi jananam  & punarapi maranam unending cycle. But this definition is useless for those who dont believe in rebirth. 
-b) So Adi Shankaracharya in his Gita Bashyam gives another deeper meaning - he says samsara is the continuous occurence of sukham (joy) and dukham (sorrow) and in no particular expected pattern.
+a) Sam (Continuous & directionless) + Sara (travel.  this is from the root "Sru" to travel and Sara is the abstract noun) - Here the definition points to the continuous cycle of birth and death and being stuck in this punarapi jananam  & punarapi maranam unending cycle. But this definition is useless for those who dont believe in rebirth. 
+b) So Adi Shankaracharya in his Gita Bashyam in the 13th chapter  gives another deeper meaning - he says samsara is the continuous cyclical occurence of sukham (joy) and dukham (sorrow) and in no particular expected pattern.
 
 I will give 2 references and conclude the explanation of the nama 
 
@@ -80,6 +77,6 @@ I will give 2 references and conclude the explanation of the nama
 सर्वधर्मान्परित्यज्य मामेकं शरणं व्रज | अहं त्वां सर्वपापेभ्यो मोक्षयिष्यामि मा शुच: || 
 sarva-dharmān parityajya mām ekaṁ śharaṇaṁ vraja ; ahaṁ tvāṁ sarva-pāpebhyo mokṣhayiṣhyāmi mā śhuchaḥ
 
-Adi Sankaracharya's commentary on this is an absolute epic and he draws out the profound teaching of "Tat Tvam Asi" from this sloka. But what we are interested for the purposes of this name are the last 2 words - मा शुच: (mā śhuchaḥ) = do not fear . The Lord after giving out the grand knowledge in the final teaching verse of the Gita pauses and says "do not fear" 
+Adi Sankaracharya's commentary on this is an absolute epic and he draws out the profound teaching of "Tat Tvam Asi" from this sloka which we will see when explaining another nama. But what we are interested for the purposes of this nama are the last 2 words - मा शुच: (mā śhuchaḥ) = do not fear . The Lord after giving out the grand knowledge in the final teaching verse of the Gita pauses and says "do not fear" .
 
-Exactly in the same way the Divine mother removes us from the Samsara by giving us the knowledged of the Atman (by arranging for the right guru to come and guide us) removing all our fear. 
+Exactly in the same way the Divine mother extinguishes Samsara for the dedicated devotee by giving him/her the knowledge  of the Atman (by arranging for the right guru to come and guide) removing all our fears.  Fear comes from limitation and identification with just this body/mind complex and hence the consequent insecurity and the greatest fear of all - death.  When we receive the knowledge of our true status as the Atman and learn it never dies (mainly because it was never born as birth or death is within time and time itself appears in Atman like how our dream time appears in our own mind) and consequently are removed from the shackles of limited identification with this one body/mind complex and therefore all fear evaporates.
