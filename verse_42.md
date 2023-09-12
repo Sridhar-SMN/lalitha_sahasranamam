@@ -94,3 +94,19 @@ When a person realizes that the whole world including himself is nothing but bra
 The Upanishad also says: brahman is indeed abhayam, free from fear. He who knows it as his own Self becomes the fearless brahman.
 
 The very recitation of the name of the Divine Mother will dispel fear. Always pls remember there is no magic here.  God sends the Guru who gives the knowledge.  No BR Chopra movie type magic show will occur and lights and bulbs will flash along with bells tolling.
+
+## 122. शाम्भवी - Shambavi - Sep 13 
+
+Lord Shiva is known as Sambu and His wife is Shambavi.  In Vishnu Sahasranamam the nama # 32 is Sambavah and Adi Shankaracharya explains it as "He manifests himself in suitable forms as per his will" . This is what Lord Krishna also explains in the famous Gita sloka 4.08 (every one knows it so well that I wont bore you again - परित्राणाय साधूनां ... युगे युगे) and is interpreted as ‘the one who gives comforts to devotees’. In that way both Lord Vishnu and Lalithambike give comfort to their devotees.
+
+Sadhguru of the Isha Foundation fame also has popularised this mudra called the Sambavi Mudra used in Kundalini meditation. Focusing both the eye balls internally towards the center of eyebrows (ājña cakra). I dont know much on this so wont try to display my ignornace.
+
+However there is hilarious and interesting contradiction that Lord Krishna poses in the Gita.  In Sloka 5.27, Lord suggests that when sitting for meditation apart from the other steps one has to focus the eyes upwards towards the center of the eyebrows and in effect suggesting that we follow the Sambavi Mudra of the Kundalini meditation.  However by the time he reaches sloka 6.13 of the Gita, he seems to have forgotten that he has asked Arjuna to follow the Sambavi Mudra and in 6.13 asks Arjuna to look down and focus at the tip of the nose. Of course if you give something like this to Swami P he is going to have a field day cracking all kinds of jokes.  This is what he has to say - and in the audio lecture he simply cant control his giggle 
+
+"if you remember the fifth chapter sloka 5.27, you will get terribly confused. If you do not remember, you are lucky, because in the fifth chapter, Krishna says, look at between the eye brows; cakṣuścaivāntarē bhruvōḥ; here Krishna says look at the tip of the nose. Now Arjuna is confused and asks "now tell me; where should I look ?"; the very fact that Krishna is not consistent indicates Krishna is not very particular about where you look; whether tip of the nose or gap between the eyebrows; do not bother too much about those details; what is important; your eyes do not distract you; that is the spirit; and even if you want to close your eyes; perfectly OK; gently close your eyes as long as you dont go into dream state or worse deep sleep" 
+
+so bottom line is I dont think this nama refers to the Mudra or any such theatrics and what Adi Sankaracharya says explaining the same nama in VS makes more sense and seems perfectly aligned to this section of the LS which talks about the Saguna Brahman, avatara theory and the importance of Saguna Bakthi towards the divine mother.
+
+
+
+
