@@ -95,7 +95,7 @@ The Upanishad also says: brahman is indeed abhayam, free from fear. He who knows
 
 The very recitation of the name of the Divine Mother will dispel fear. Always pls remember there is no magic here.  God sends the Guru who gives the knowledge.  No BR Chopra movie type magic show will occur and lights and bulbs will flash along with bells tolling.
 
-## 122. शाम्भवी - Shambavi - Sep 13 
+## 122. शाम्भवी - Sambavi - Sep 13 
 
 Lord Shiva is known as Sambu and His wife is Shambavi.  In Vishnu Sahasranamam the nama # 32 is Sambavah and Adi Shankaracharya explains it as "He manifests himself in suitable forms as per his will" . This is what Lord Krishna also explains in the famous Gita sloka 4.08 (every one knows it so well that I wont bore you again - परित्राणाय साधूनां ... युगे युगे) and is interpreted as ‘the one who gives comforts to devotees’. In that way both Lord Vishnu and Lalithambike give comfort to their devotees.
 
