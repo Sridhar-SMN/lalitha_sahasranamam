@@ -11,7 +11,7 @@ Shambhavi sharadardhya sharvani sharmadayini ॥
 120. भक्तिवश्या - Bhakti-vashya
 121. भयापहा - Bhaya-paha
 122. शाम्भवी - Shambavi
-123. शारदाराध्या - Sharadardhya
+123. शारदाराध्या - Sharadaradhya
 124. शर्वाणी - Sharvani
 125. शर्मदायिनी - Sharmadayini
 
