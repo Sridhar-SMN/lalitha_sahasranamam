@@ -108,5 +108,16 @@ However there is hilarious and interesting contradiction that Lord Krishna poses
 so bottom line is I dont think this nama refers to the Mudra or any such theatrics and what Adi Sankaracharya says explaining the same nama in VS makes more sense and seems perfectly aligned to this section of the LS which talks about the Saguna Brahman, avatara theory and the importance of Saguna Bakthi towards the divine mother.
 
 
+## 123. शारदाराध्या - Sharadaradhya - Sep 14 
+
+Śāradā means Sarasvatī, the Goddess of speech. She is worshiped by Sarasvatī. This nāma means that she is worshipped by the knowledgeable (knowledge gained from Veda-s and śāstra-s).
+
+## 124. शर्वाणी - Sharvani - Sep 14
+
+She is the wife of Siva, whose body is the Earth. The Puranas say Siva is called Sarva in his earth form
+
+## शर्मदायिनी - Sharmadayini - Sep 15
+
+Śarma means happiness. She confers happiness on Her devotees. Conferring happiness is Her habit as She is the Divine Mother. Pls read this nama along with nama 121.
 
 
