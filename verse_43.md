@@ -26,7 +26,10 @@ The famous poem of Kalidasa in रघुवम्श/raghuvamsha is used to desc
 vaagarthaaviva sampRuktau vaagartha pratipattaye | jagataH pitarau vande paarvatIparameshvarau ||
 
 
-# 127. श्रीकरी - Srikari - Sep 19 
+## 127. श्रीकरी - Srikari - Sep 19 
+
+
+
 
 Śrī means all types of prosperity. It also means wealth, happiness, beauty, attraction, auspiciousness, etc. Since She is the embodiment of all these qualities and also endows these qualities on Her devotees, She is known as Śrīkarī. Viṣṇu Sahasranāma 611 is Śrīkarā which means the giver of wealth to His devotees. In fact, there is no difference between Viṣṇu and Lalitāmbikā.
 
