@@ -40,12 +40,26 @@ kalyāṇadātri kamalēkṣaṇajīvanāthē |
 dāridryabhītihr̥dayaṁ śaraṇāgataṁ mām
 ālōkaya pratidinaṁ sadayairapāṅgaiḥ
 
-Want to draw your attention to the 3rd line - dāridryabhītihr̥dayaṁ śaraṇāgataṁ mām - here Shankarar says he is not surrendering to obtain wealth/money/gold & relief from material poverty  but relief he is seeking is from the poverty that is afflicting the mind - the poverty caused by ignorance of our true nature. 
+Want to draw your attention to the 3rd part - dāridryabhītihr̥dayaṁ śaraṇāgataṁ mām - here Shankarar says he is not surrendering to obtain wealth/money/gold & relief from material poverty  but relief he is seeking is from the poverty that is afflicting the mind - the poverty caused by ignorance of our true nature. 
 
 
-128. साध्वी - Sadhvi
-129. शरच्चन्द्र-निभानना - sarachandra nibhanana
-130. शातोदरी - Shatodari
-131. शान्तिमती - Shantimati
+## 128. साध्वी - Sadhvi - Sep 20
+
+The nama refers to the purity and chastity, however not how we typically understand but chaste thru knowledge. Lalithambike is called as chaste because, She always remains with Śiva. And as we saw earlier the nama Shiva/Siva represents true knowledge/bliss/ananda.  She considers Śiva as pati deva just as a wife who regards her husband as divine and vice verse. This is the right explanation for this nāma as She was 'created' by Śiva and therefore She considers Śiva as Her divine husband. ‘Pati vedanaḥ’ means Śiva. For Tamil speakers pls dont crack up here - It is Vedanah not Vedanai-வேதனை (for non tamil speakers வேதனை means worry :-)) . Vedanaḥ means perception or knowledge and pati vedanaḥ means possessor of knowledge.
+
+Taking Śiva as nirguṇa Brahman or the Brahman without attributes and his consort (Maya sakthi)  is Nirguna Brahman+Maya Sakthi = Saguṇa Brahman, as She is endowed with all the energies for creation,sustenance and dissolution.
+
+## 129. शरच्चन्द्र-निभानना - sarachandra nibhanana - Sep 21 
+
+Her face appears like the moon in spring season. Sarad means second half of October, November and first half of December. In a natural horoscope, each rāśi represents a solar month. Two solar months make a ṛtu and six ṛtu-s make a year. During śarad ṛtu (autumn or fall season) the moon appears brighter and without blemishes.  I personally think the LS is moving towards the Nirguna Svarupam which starts soon. Namas 132 to 155 discuss Her as Nirguṇa Brahman or Her formless form. Worshipping Her as Nirguṇa (without attributes or qualities) form is considered as an important aspect of worship and the result of such worship is described in namas 156 to 195.
+
+## 130. शातोदरी - Shatodari - Sep 21 
+
+She has thin waist. These two namass (129 and 130) are connected to Her kāmakalā form, the details of which will be discussed in kāmakalā rūpā (nāma 322)
+
+## 131. शान्तिमती - Shantimati - Sep 22
+
+
+
 132. निराधारा - Niradhara
 133. निरञ्जना - Niranjana
