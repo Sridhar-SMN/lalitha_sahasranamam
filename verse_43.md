@@ -64,6 +64,7 @@ This nama typically gets translated as "peaceful" when defining the Divine mothe
 In Chapter 4 of the Gita Lord Krishna in 2 slokas explains to us what "Shanti" truly means 
 
 न मां कर्माणि लिम्पन्ति न मे कर्मफले स्पृहा | इति मां योऽभिजानाति कर्मभिर्न स बध्यते || 4.14 
+
 वीतरागभयक्रोधा मन्मया मामुपाश्रिता: | बहवो ज्ञानतपसा पूता मद्भावमागता: || 4.10 
 
 Let us take 4.14 first as 4.10 is probably one of the most comprehensive slokas of the Gita.   In 4.14, Lord Krishna is setting the stage for the grand crescendo he is going to reach in 4.18-4.24.   What he is essentially trying to say in 4.14 is that as Lord Krishna the Saguna Brahman/Ishwara/Bhagawan he can never be at peace if he identifies himself with the role. For each of us we are subjected to the ups and downs we go thru in one mind and it becomes crazy at times. Imagine as the Omniscient Lord/Divine Mother, they were to identify with the highs and lows of each Jiva, their existence will become miserable.  As Swami P says even the Lord attains eternal peace (Shanti) only by identifying with His/Her higher nature and knowing fully well that the play of Prakriti/Maya is never going to affect them just like a movie screen is not affected by the tradegy or comedy it helps project. Adi Shankaracharya beautifully explains 4.14 thus: 
