@@ -59,7 +59,33 @@ She has thin waist. These two namass (129 and 130) are connected to Her kāmakal
 
 ## 131. शान्तिमती - Shantimati - Sep 22
 
+This nama typically gets translated as "peaceful" when defining the Divine mother but that does little to let us know what we need to get there. So will borrow from 2 slokas of the Gita to explain this nama.  "Shanti" is also one of the qualities listed in the 13th chapter of the Gita which are requirement for being eligible to receive the highest truth. 
+
+In Chapter 4 of the Gita Lord Krishna in 2 slokas explains to us what "Shanti" truly means 
+
+न मां कर्माणि लिम्पन्ति न मे कर्मफले स्पृहा | इति मां योऽभिजानाति कर्मभिर्न स बध्यते || 4.14 
+वीतरागभयक्रोधा मन्मया मामुपाश्रिता: | बहवो ज्ञानतपसा पूता मद्भावमागता: || 4.10 
+
+Let us take 4.14 first as 4.10 is probably one of the most comprehensive slokas of the Gita.   In 4.14, Lord Krishna is setting the stage for the grand crescendo he is going to reach in 4.18-4.24.   What he is essentially trying to say in 4.14 is that as Lord Krishna the Saguna Brahman/Ishwara/Bhagawan he can never be at peace if he identifies himself with the role. For each of us we are subjected to the ups and downs we go thru in one mind and it becomes crazy at times. Imagine as the Omniscient Lord/Divine Mother, they were to identify with the highs and lows of each Jiva, their existence will become miserable.  As Swami P says even the Lord attains eternal peace (Shanti) only by identifying with His/Her higher nature and knowing fully well that the play of Prakriti/Maya is never going to affect them just like a movie screen is not affected by the tradegy or comedy it helps project. Adi Shankaracharya beautifully explains 4.14 thus: 
+
+"Because of the absence of egoism, those karmani, actions; na limpanti, do not taint; mam, Me, by becoming the originators of body etc. And me, for Me; na sprha, there is no hankering for the results of those actions. But in the case of transmigrating beings, who have self-identification in the form, 'I am the agent', and thirst for actions as also for their results, it is reasonable that actions should taint them. Owing to the absence of these, actions do not taint Me. Anyone else, too, yah, who; abhijanati, knows; mam, Me; iti, thus, as his own Self, and (knows), 'I am not an agent; I have no hankering for the results of actions'; sah, he; na badhyate, does not become bound; karmabhih, by actions. In his case also actions cease to be the originators of body etc. This is the import."
+
+The tool on how to achieve this is explained in sloka 4.10 - if fate walks to you and says it wants to snatch away from your memory and understanding all the slokas of the Gita barring one and give you a choice to pick 1 sloka that you would want to keep, then I suggest you pick 4.10.  Explaining this Swami P says 
+
+4.10 breakdown by rearranging the words of the sloka
+
+वीतरागभयक्रोधा मन्मया मामुपाश्रिता: | बहवो ज्ञानतपसा पूता मद्भावमागता: || 
+
+वीतरागभयक्रोधा ( Vairagyam & then Karma Yoga)
+बहवो ज्ञानतपसा (sincere Shravanam, Mananam & Nidhidhyasanam followed by the Jnana Yogis) 
+मामुपाश्रिता: (an attitudinal change to move towards Athma-Anathma format from Jiva-Jagat-Ishwara format) 
+पूता मद्भावमागता: (attained Videha Mukthi realising the never had Janma in first place) 
+मन्मया (Achieved Jivatma Parmatma aikyam)
+
+I am guessing even doing our best to follow 4.10 will give us tremendous peace of mind (Shanti) whether or not we get the grand prize of Self Realisation in this very birth.  
 
 
-132. निराधारा - Niradhara
-133. निरञ्जना - Niranjana
+## 132. निराधारा - Niradhara
+
+
+## 133. निरञ्जना - Niranjana
