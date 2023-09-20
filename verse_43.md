@@ -92,7 +92,7 @@ I am guessing even doing our best to follow 4.10 will give us tremendous peace o
 ### freed from the need to keep it somewhat short to have to post on whatsapp I suddenly find myself at liberty to keep going for pages till i am fully satisfied that I have understood it fully. 
 
 
-## 132. निराधारा - Niradhara
+## 132. निराधारा - Niradhara - Sep 25
 
 
-## 133. निरञ्जना - Niranjana
+## 133. निरञ्जना - Niranjana - Sep 26
