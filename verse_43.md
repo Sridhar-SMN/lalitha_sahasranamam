@@ -71,7 +71,7 @@ Let us take 4.14 first as 4.10 is probably one of the most comprehensive slokas 
 
 "Because of the absence of egoism, those karmani, actions; na limpanti, do not taint; mam, Me, by becoming the originators of body etc. And me, for Me; na sprha, there is no hankering for the results of those actions. But in the case of transmigrating beings, who have self-identification in the form, 'I am the agent', and thirst for actions as also for their results, it is reasonable that actions should taint them. Owing to the absence of these, actions do not taint Me. Anyone else, too, yah, who; abhijanati, knows; mam, Me; iti, thus, as his own Self, and (knows), 'I am not an agent; I have no hankering for the results of actions'; sah, he; na badhyate, does not become bound; karmabhih, by actions. In his case also actions cease to be the originators of body etc. This is the import."
 
-The tool on how to achieve this is explained in sloka 4.10 - if fate walks to you and says it wants to snatch away from your memory and understanding all the slokas of the Gita barring one and give you a choice to pick 1 sloka that you would want to keep, then I suggest you pick 4.10.  Explaining this Swami P says 
+The tool on how to achieve this is explained in sloka 4.10 - if fate walks to you and says it wants to snatch away from your memory and understanding all the slokas of the Gita barring one and gives you a choice to pick 1 sloka that you would want to keep, then I suggest you pick 4.10.  Explaining this Swami P says 
 
 4.10 breakdown by rearranging the words of the sloka
 
@@ -83,7 +83,13 @@ The tool on how to achieve this is explained in sloka 4.10 - if fate walks to yo
 पूता मद्भावमागता: (attained Videha Mukthi realising the never had Janma in first place) 
 मन्मया (Achieved Jivatma Parmatma aikyam)
 
-I am guessing even doing our best to follow 4.10 will give us tremendous peace of mind (Shanti) whether or not we get the grand prize of Self Realisation in this very birth.  
+And again quoting Adi Shankaracharya here - and the most gratifying word for me in this sloka is Bahavah (many) -  If the Lord says many have attained eternal peace/Shanti following the teachings of this sloka, then it is good enough guarantee for me. 
+
+"Bahavah, many; vita-raga-bhaya-krodhah, who were devoid of attachment, fear and anger; manmayah, who were absorbed in Me, who were knowers of Brahman, who were seers of (their) identity with God; mam upasrithah, who had taken refuge only in Me, the supreme God, i.e. who were steadfast in Knowledge alone; and were putah, purified, who had become supremely sanctified; jnana-tapasa, by the austerity of Knowledge-Knowledge itself, about the supreme Reality, being the austerity; becoming sanctified by that austerity of Knowledge-; agatah, have attained; madbhavam, My state, Goodhood, Liberation. The particular mention of 'the austerity of Knowledge' is to indicate that steadfastness in Knowledge does not depend on any other austerity."
+
+I am guessing even doing our best to follow 4.10 will give us tremendous peace of mind (Shanti) whether or not we get the grand prize of Self Realisation in this very birth. 
+
+### freed from the need to keep it somewhat short to have to post on whatsapp I suddenly find myself at liberty to keep going for pages till i am fully satisfied that I have understood it fully. 
 
 
 ## 132. निराधारा - Niradhara
