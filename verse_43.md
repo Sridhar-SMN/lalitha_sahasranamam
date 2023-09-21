@@ -51,7 +51,7 @@ Taking Śiva as nirguṇa Brahman or the Brahman without attributes and his cons
 
 ## 129. शरच्चन्द्र-निभानना - sarachandra nibhanana - Sep 21 
 
-Her face appears like the moon in spring season. Sarad means second half of October, November and first half of December. In a natural horoscope, each rāśi represents a solar month. Two solar months make a ṛtu and six ṛtu-s make a year. During śarad ṛtu (autumn or fall season) the moon appears brighter and without blemishes.  I personally think the LS is moving towards the Nirguna Svarupam which starts soon. Namas 132 to 155 discuss Her as Nirguṇa Brahman or Her formless form. Worshipping Her as Nirguṇa (without attributes or qualities) form is considered as an important aspect of worship and the result of such worship is described in namas 156 to 195.
+Her face appears like the moon in spring season. Sarad means second half of October, November and first half of December. In a natural horoscope, each rāśi represents a solar month. Two solar months make a ṛtu and six ṛtu-s make a year. During śarad ṛtu (autumn or fall season) the moon appears brighter and without blemishes.  
 
 ## 130. शातोदरी - Shatodari - Sep 21 
 
@@ -89,10 +89,13 @@ And again quoting Adi Shankaracharya here - and the most gratifying word for me 
 
 I am guessing even doing our best to follow 4.10 will give us tremendous peace of mind (Shanti) whether or not we get the grand prize of Self Realisation in this very birth. 
 
-### freed from the need to keep it somewhat short to have to post on whatsapp I suddenly find myself at liberty to keep going for pages till i am fully satisfied that I have understood it fully. 
-
+### freed from the need to keep it somewhat short to have to post on whatsapp I suddenly find myself at liberty to keep going for pages till I am satisfied that I have understood it fully. 
 
 ## 132. निराधारा - Niradhara - Sep 25
+
+Namas 132 to 155 discuss Her as Nirguṇa Brahman or Her formless form. Worshipping Her as Nirguṇa (without attributes or qualities) form is considered as an important aspect of worship and the result of such worship is described in namas 156 to 195.
+
+
 
 
 ## 133. निरञ्जना - Niranjana - Sep 26
