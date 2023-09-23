@@ -93,9 +93,20 @@ I am guessing even doing our best to follow 4.10 will give us tremendous peace o
 
 ## 132. निराधारा - Niradhara - Sep 25
 
-Namas 132 to 155 discuss Her as Nirguṇa Brahman or Her formless form. Worshipping Her as Nirguṇa (without attributes or qualities) form is considered as an important aspect of worship and the result of such worship is described in namas 156 to 195.
+Starting from this name till 195 is the Nirugna svarupam of Lalithambike and like we saw in Nama 131, firmly established in this knowledge does Saguna Brahman/Ishwara/Divine Mother descend into an avatara or form.  As we saw earlier Saguna Brahman descends down as an avatara out of compassion whereas a Jiva falls into samsara out of passion.   Niradhara - adhara means support and nir+adhara is without support or without need for support - it simply translates as supportless supporter of the world. Just like the waker’s mind supports the dream, Brahman/Consciousness supports this entire universe of living and non living beings. 
 
+To best grasp this concept, our scriptures recommend using space/akasha (here akasha is not sky but space) as a good proxy to understand how to best relate to Brahman. For this Nama we will focus on # 7 - Sarva adharatvam 
 
+1. Ēkathvam. Both are only one. Ātma Ēkaḥ. ākāśaḥ Ēkaḥ.
+2. Sarva vyapakathvyam. Ātma is all-pervading. ākāśaḥ is all pervading. 
+3. Acalatvam - Being all pervading, ātma cannot move from one place to another, ākāśaḥ cannot also move. 
+4. Nirvikārathvam. ākāśaḥ remains the same. It does not get older or younger. It does not get out of shape; all these are for objects in ākāśaḥ, ākāśaḥ itself is Nirvikara, ātma is also nirvikāra. 
+5. Akhandathvam. Ātma is part-less. Khanda means part. ākāśaḥ also does not have part. ākāśaḥ is indivisible and ākāśaḥ and 
+6. ātma and akashah are asaṅgaḥ - untainted by what happens in them  (this was highlighted in Nama 131 where Saguna Brahman derives true peace by remaining unattached/untainted)
+7.  ākāśaḥ is sarva adharatvam. It accommodates, supports everything. The whole cosmos is located in ākāśaḥ, therefore ākāśaḥ is viśvādhāram, and Bhagavān is also; ātma is ALSO viśvādhāram. That is why in Vishnu Sahasranama, after viśvādhāram, what comes; gaganasadruśam. gaganam, means ākāśaḥ. And therefore, ātma is like ākāśaḥ. 
+8. And one more, Sūkṣmatvam. ākāśaḥ cannot be easily comprehended intellectually 
+
+Lord Krishna brings this out beautifully in 9.04 and 9.05 of the Gita where he explains how the world seemingly rests in Him (as Brahman) while clarifying He is not in them. 
 
 
 ## 133. निरञ्जना - Niranjana - Sep 26
