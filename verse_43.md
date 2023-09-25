@@ -110,3 +110,8 @@ Lord Krishna brings this out beautifully in 9.04 and 9.05 of the Gita where he e
 
 
 ## 133. निरञ्जना - Niranjana - Sep 26
+
+Anjana, black,  attached to ignorance because ignorance has the quality of veiling (nature) owing to its quality of darkness. The Yogaväsistha says, "Existence and non-existence of (desired) objects produce joy and sorrow. O Rama; impure inclination is termed ' attachment' (sanga)" That is, she is free from contact with ignorance; because of the non-existence of ignorance, which is pure illusion. Essentially saying that in Her higher nature the Divine Mother is unaffected by Maya/Avidhya/Ignorance and in facts wields it as her power to manifest this creation.  For the fans of Gita you will notice this being said in many places.
+
+
+
