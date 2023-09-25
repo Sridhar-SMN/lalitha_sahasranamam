@@ -113,5 +113,7 @@ Lord Krishna brings this out beautifully in 9.04 and 9.05 of the Gita where he e
 
 Anjana, black,  attached to ignorance because ignorance has the quality of veiling (nature) owing to its quality of darkness. The Yogaväsistha says, "Existence and non-existence of (desired) objects produce joy and sorrow. O Rama; impure inclination is termed ' attachment' (sanga)" That is, she is free from contact with ignorance; because of the non-existence of ignorance, which is pure illusion. Essentially saying that in Her higher nature the Divine Mother is unaffected by Maya/Avidhya/Ignorance and in facts wields it as her power to manifest this creation.  For the fans of Gita you will notice this being said in many places.
 
+Brahman is the adhistanam for Maya during pralaya but remains unaffected in the next cycle like space is not polluted by Fire or smell, Brahman remains the substratum for all names/forms but continues to remain untainted by the effects of ignorance/Maya. This aspect is brought out in this nama.
+
 
 
