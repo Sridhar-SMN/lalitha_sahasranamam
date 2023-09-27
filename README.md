@@ -53,6 +53,13 @@ Swami P is very cute - he says how long are you going to keep saying Brahma Sath
 
 May the divine mother bless all of you and your families on this auspicious Panguni Uthiram day .
 
+document reference links 
+
+https://sanskritdocuments.org/doc_devii/lalita.html - Sanskrit slokas
+
+https://templesinindiainfo.com/sri-lalitha-sahasranama-stotram-lyrics-in-english-with-meaning/#google_vignette - English slokas
+
+
 ------------------------------------
 
 # Lalitha Sahasranamam - verse wise meanings and explanations
