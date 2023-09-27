@@ -22,6 +22,14 @@ https://sahasrakshi.com/2020/06/sri-lalita-sahasranamam-with-bhaskararayas-comme
 
 3. Swami Paramathmanandaji’s various lectures where he cross references Lalitha Sahasranamam and also Swamiji’s and Swami Sarvapriyanandaji’s lectures on Gita and the Upanishads.
 
+document reference links 
+
+https://sanskritdocuments.org/doc_devii/lalita.html - Sanskrit slokas
+
+https://templesinindiainfo.com/sri-lalitha-sahasranama-stotram-lyrics-in-english-with-meaning/#google_vignette - English slokas
+
+
+
 ### offering all this at the lotus feet of my Guru-Swami Paramarthanandaji (Swami P), I seek the blessings of the Divine mother & Lord Subrahmanya and venture into this project. 
 
 --------------------------------------------
@@ -52,12 +60,6 @@ Normally the 4th part of the slokas is translated as what i have quoted above in
 Swami P is very cute - he says how long are you going to keep saying Brahma Sathyam, Jagath Mithya & Jivo Brahmaiva na param ? When are going to collapse these 3 parts into 2 parts and say Aham Sathyam, Jagath Mithya  ?
 
 May the divine mother bless all of you and your families on this auspicious Panguni Uthiram day .
-
-document reference links 
-
-https://sanskritdocuments.org/doc_devii/lalita.html - Sanskrit slokas
-
-https://templesinindiainfo.com/sri-lalitha-sahasranama-stotram-lyrics-in-english-with-meaning/#google_vignette - English slokas
 
 
 ------------------------------------
