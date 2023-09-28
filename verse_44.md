@@ -34,6 +34,27 @@ We can write pages on each of these namas but some of this will become repetitiv
 
 ## Nama 136 - नित्या- Nitya - Sep 29
 
+Nitya means eternal and without changes. As nirguṇa Brahman is being discussed, one of the qualities of the Brahman is explained here. Bṛhadaraṇyaka Upaniṣad  describes the Brahman as “the Self is indeed immutable and indestructible”. Brahman is beyond changes and exists everywhere, omnipresent.
+
+Lord Krishna brings this out in many slokas between 2.11-2.29 of the Gita and three  of the most beautiful slokas to describe the concept of eternal = Nitya are 2.24 (which actually has the word Nitya) and 10.20 & finally the most important sloka of the Gita 2.16
+
+अच्छेद्योऽयमदाह्योऽयमक्लेद्योऽशोष्य एव च | नित्य: सर्वगत: स्थाणुरचलोऽयं सनातन: || 
+
+2.24 Since this is so, therefore ayam, It; acchedyah, cannot be cut. Since the other elements which are the causes of destruction of one ano ther are not capable of destroying this Self, therefore It is nityah, eternal. Being eternal, It is sarva-gatah, omnipresent. Being omnipresent, It is sthanuh, stationary, i.e. fixed like a stump. Being fixed, ayam, this Self; is acalah, unmoving. Therefore It is sanatanah, changeless, i.e. It is not produced from any cause, as a new thing. It is not to be argued that 'these verses are repetive since eternality and changelessness of the Self have been stated in a single verse itself, "Never is this One born, and never does It die," etc. (20). Whatever has been said there (in verse 19) about the Self does not go beyond the meaning of this verse. Something is repeated with those very words, and something ideologically.' Since the object, viz the Self, is inscrutable, therefore Lord Vasudeva raises the topic again and again, and explains that very object in other words so that, somehow, the unmanifest Self may come within the comprehension of the intellect of the transmigrating persons and bring about a cessation of their cycles of births and deaths.
+
+and I am linking this to sloka 10.20 (which happens to be Ramana Maharishi's favorite sloka of the Gita) where as Nirguna Brahman the Lord says He is the beginning, middle and end of all beings.  
+
+अहमात्मा गुडाकेश सर्वभूताशयस्थित: | अहमादिश्च मध्यं च भूतानामन्त एव च || 
+
+10.20 Gudakesa, O Gudakesa-gudaka means sleep, and isa means master; master of that (sleep) is gudakesa, i.e. one who has conquered sleep of ignorance;  aham, I; am the atma, Self, the indwelling Self; who is to be ever-meditated on as sarva-bhuta-asaya-sthitah, residing in the hearts of all beings. And, by one who is unable to do so, I am to be meditated on through the following aspects. I am capable of being meditated on (through them) becasue aham, I; am verily the adih, beginning, the origin; and the madhyam, middle, continuance; ca, as also; the antah, end, dissolution; bhutanam, of (all) beings. 'I am to be meditated upon thus also:'
+
+
+नासतो विद्यते भावो नाभावो विद्यते सत: | उभयोरपि दृष्टोऽन्तस्त्वनयोस्तत्त्वदर्शिभि: || 
+
+
+2.16 न not? असतः of the unreal? विद्यते is? भावः being? न not? अभावः nonbeing? विद्यते is? सतः of the real? उभयोः of the two? अपि also? दृष्टः (has been) seen? अन्तः the final truth? तु indeed? अनयोः of these? तत्त्वदर्शिभिः by the knowers of the Truth.Commentary -- The changeless? homogeneous Atman or the Self always exists. It is the only solid Reality. This phenomenal world of names and forms is ever changing. Hence it is unreal. The sage or the Jivanmukta is fully aware that the Self always exists and that this world is like a mirage. Through his Jnanachakshus or the eye of intuition? he directly cognises the Self. This world vanishes for him like the snake in the rope? after it has been seen that only the rope exists. He rejects the names and forms and takes the underlying Essence in all the names and forms? viz.? AstiBhatiPriya or Satchidananda or ExistenceKnowledgeBliss Absolute. Hence he is a Tattvadarshi or a knower of the Truth or the Essence.What is changing must be unreal. What is constant or permanent must be real.
+
+According to Swami P the whole teaching of the Gita is already over in sloka 2.11 where the concept of Nitya is explained by Krishna stating the wise do not grieve for the ephemeral.  Swami P then  says it is for the dull heads that Lord Krishna had to do another 650 odd slokas. 
 
 ## Nama 137 - निराकारा - Nirakara - Oct 2 
 
