@@ -58,6 +58,35 @@ According to Swami P the whole teaching of the Gita is already over in sloka 2.1
 
 ## Nama 137 - निराकारा - Nirakara - Oct 2 
 
+She is formless. Akara means form, figure, shape etc. - essentially available for sense perception. Normally avyaktam gets translated as unmanifest but what it really means is not available for sense perception.
+
+A simple summary of how the Upanishads and Gurus teach the concept of the Nirguna & formless Brahman 
+
+Q : Brahman itself is avyaktham and indriya agocharam and also cannot be explained in words (jaathi, guna, kriya, sambandha  roodi vilakshanam) . So how is it revealed ? 
+
+A: Thank god there is this Mithya world and with this Mithya world the scriptures create a Mithya sambandha and a Mithya guru explains this Mithya jnanam to remove the Mithya avidya in the Mithya mind.  It is therefore extremely important to understand the true meaning of "mithya" - that which does not have an independent reality is "Mithya" or to put it more technically - that which appears in the locus of its absence is called Mithya. 
+
+Swami P captures the 5 principles of existence and consciousness in a beautiful capsule - they read pretty much the same but worth repeating here 
+
+### Five Features of Consciousness (equally applicable for Existence)
+
+1) Consciousness is not part, product or property of the body
+2) Consciousness is an independent entity or principle which pervades and enlivens the body
+3) Consciousness is not limited by the boundaries of the body
+4) Consciousness continues to exist or survive even after the death of the body
+#### 5) The surviving consciousness is not accessible because of the absence of the body medium
+
+Combining these 2 Swami P summarises this into the key teachings of Vedanta
+
+### Five principles of Vedanta 
+
+1)    I am of the nature of eternal and all-pervading Consciousness.
+2)    I am the only source of permanent, peace, security and happiness
+3)    By my mere presence, I give life to the material body and through the body, I experience the material universe. The word “body” includes the mind because the mind is also a subtle form of body
+4)    I am not affected by anything that takes place in the material world and in the material body, including the material mind
+5)    By forgetting my nature, I convert life into a struggle and by remembering my nature, I convert life into a sport or entertainment.
+
+
 
 ## Nama 138 - निराकुला - Nirakula - Oct 3
 
