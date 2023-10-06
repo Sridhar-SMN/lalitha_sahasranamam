@@ -88,6 +88,6 @@ Combining these 2 Swami P summarises this into the key teachings of Vedanta
 
 
 
-## Nama 138 - निराकुला - Nirakula - Oct 3
+## temporary pause due to hectic work schedule
 
 
